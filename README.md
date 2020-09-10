@@ -1,2 +1,2 @@
 # ChineseLetters
-collection for Mrs. Chen's letter from wechat
+汇总语文老师每日微信中交流的内容
