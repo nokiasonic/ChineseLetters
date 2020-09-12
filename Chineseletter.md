@@ -163,6 +163,7 @@
 ### 古诗一首
 
 > <font color=lightgreen> **夏日绝句**</font>
+> 
 > <font color=lightblue>**宋  李清照**</font>
 >
 > 生当作人杰，
@@ -231,6 +232,7 @@
 ### 古诗一首
 
 > <font color=lightgreen> **三衢道中**</font>
+> 
 > <font color=lightblue> **宋    曾几**</font>
 >
 > 梅子黄时日日晴，
@@ -325,7 +327,8 @@
 ### 古诗一首
 
 > <font color=lightgreen> **秋夜将晓出篱门迎凉有感**</font>
-> <font color=lightblue> **宋   陆游 **</font> 
+> 
+> <font color=lightblue> **宋   陆游**</font> 
 >
 > 三万里河东入海，
 > 五千仞岳上摩天。
@@ -365,6 +368,7 @@
 ### 古诗一首
 
 > <font color=lightgreen> **四时田园杂兴**</font> 
+> 
 > <font color=lightblue> **宋  范成大**</font> 
 >
 > 昼出耘田夜绩麻，
@@ -408,6 +412,7 @@
 > ### 古诗一首
 >
 > <font color=lightgreen> **四时田园杂兴**</font> 
+> 
 > <font color=lightblue> **宋  范成大**</font>
 >
 > 梅子金黄杏子肥，
@@ -464,6 +469,7 @@
 ### 古诗一首
 
 > <font color=lightgreen> **小池**</font> 
+> 
 > <font color=lightblue> **宋	杨万里**</font> 
 >
 > 泉眼无声惜细流，
