@@ -587,7 +587,7 @@
 
 ### 古诗一首
 
-> <font color=lightgreen>**观书有感**</font>
+> <font color=lightgreen>**观书有感**</font>  
 > <font color=lightblue>**宋   朱熹**</font>  
 >
 > 半亩方塘一鉴开，  
