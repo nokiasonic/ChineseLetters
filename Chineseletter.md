@@ -598,5 +598,69 @@
 > 半亩方塘一鉴开，  
 > 天光云影共徘徊。  
 > 问渠哪得清如许？  
-> 为有源头活水来  
+> 为有源头活水来 。
+
+## 2020年9月16日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天我们学习完了第一单元的四篇课文，孩子们要落实本单元的语文要素——边读边想象画面，感受自然之美。方法一：按照陈老师范读的方法，自由练习读这四篇课文，一边读一边想象画面。（脑海里要有“放电影”的感觉）方法二：自由选择课外读物，巩固“边读边想象画面”的方法自由练读。方法三：尝试运用“画场景”自由练笔。（百字作文）开学进度稍慢一点，目的是巩固课堂常规，狠抓学习习惯。第二单元起学习进度会稍快一点，关键是把预习作业做到位——按照预习案中的每一项内容认真完成。另，请查看1号本第一单元一、二课的一类字完成改错的情况（这是假期作业）。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天花了一些时间进行作业中难题的改错指导，请认真完成改错，记得明早上交第一单元预习案。另，第一单元的课文学习结束了，每天要按照陈老师范读的方法去练习朗读这四篇课文。去找感觉，脑海里有“放电影”了吗？一遍没有感觉， 就读第二遍，第三遍……坚持这样的练习，你们不仅提高了朗读水平，加强了语感，还积累了习作的素材。加油吧！
+
+### 本日推文
+
+[连续三天上了《新闻联播》！云南的小康生活有滋有味](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247582455&idx=1&sn=4cb6338378ee8ff5868202b10bd00018&chksm=fa4ab996cd3d308013ebfbc350f2a730d932422e82f00500161b231b57924d7b06f095ca9ed8&mpshare=1&scene=24&srcid=091685UqD5FuFGCZWtMQVUSB&sharer_sharetime=1600236163024&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84c5fc3ea908faeb0adeb4d333a772a3d0ac70887073994cc9440e04c0106edf8daae7a61e7a91d370ec48071833a6412394c4446a064525588bed0df00abb07ed80305f3f63a54d2adbe8fddbef02283c22a68d8633ecb03876a4eb3503945c6181c855b52fcaa1b7ea4c70e997568b76e72540c5cc5524153f87f6a9132d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AREIWxePe6gd386Xt1%2BK2ag%3D&pass_ticket=Jsjkh92pwwusvO1Gg8%2BL1fbo7fMFwvcAeYKwmbYVqk2MWKVvdqqWSU0a%2B2EXKsNh&wx_header=0)
+
+[体育课，要不要进高考？](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658615731&idx=1&sn=4ac35821d8efde88b03868815cca5b45&chksm=bd5f95dc8a281cca3968eb417fa19450ed670432652a57650c7106a55cc7c77a92bcaa431423&mpshare=1&scene=24&srcid=0916gt0hsTocWxmBYqcPdaE7&sharer_sharetime=1600236259246&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06059779a9050bc08a25059200a52d61141af7928f279d0cdeb832ac86926c43cfc289740496c2af8d9885c6c61a5aaa7ffe48cd82903ae1e7525008d6b9b2ea188a859bd22e9c9b93b70c050892d5db11b91b6b6637bfc55790813f62cd31b690a2359ba0ce5614a0549e643afe68c4e09772d63c7bad2442&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AREc3flavYPp%2B6PnRtx8yjI%3D&pass_ticket=Jsjkh92pwwusvO1Gg8%2BL1fbo7fMFwvcAeYKwmbYVqk2MWKVvdqqWSU0a%2B2EXKsNh&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+> 　
+> 　　一
+>
+> 　　繁星闪烁着——
+> 　　深蓝的天空
+> 　　何曾听得见他们对语
+> 　　沉默中
+> 　　微光里
+> 　　它们深深的互相颂赞了
+>
+> 　　二
+> 　　童年呵!
+> 　　是梦中的真
+> 　　是真中的梦
+> 　　是回忆时含泪的微笑
+>
+> 　　三
+> 　　万顷的颤动——
+> 　　深黑的岛边
+> 　　月儿上来了
+> 　　生之源
+> 　　死之所!
+>
+> 　　四
+> 　　小弟弟呵!
+> 　　我灵魂中三颗光明喜乐的星
+> 　　温柔的
+> 　　无可言说的
+> 　　灵魂深处的孩子呵!
+
+#### 文中生字
+
+> <font color=lightyellow>**颂(sòng)	颤(chàn)**</font>
+
+### 古诗一首
+
+> <font color=lightgreen>**题临安邸**</font>  
+>
+> <font color=lightblue>**宋   林升**</font>  
+>
+> 山外青山楼外楼，  
+> 西湖歌舞几时休？  
+> 暖风熏得游人醉，  
+> 直把杭州作汴州。  
 
