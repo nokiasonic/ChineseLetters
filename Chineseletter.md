@@ -663,3 +663,71 @@
 > 暖风熏得游人醉，  
 > 直把杭州作汴州。  
 
+
+
+## 2020年9月17日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天完成了练习一的学习，学习重点围绕本单元语文要素进行——边读边想象画面。一个词，一句话，一个段落，一篇文章，我们要养成边读边想象的习惯，去想象文字背后的画面。从今天起，我们要努力培养孩子们一边阅读一边想象的好习惯。今天还对昨天的仿写改错进行了指导，抓住仿写特点：以时间为线索，变换地点，描绘画面，表达感受。注意看群里的展示。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天我们对第一单元的课文围绕本单元的语文要素进行了回顾，接着学习了练习一的内容。课堂上我们反复训练围绕一个词，或一个句子，或一个段落，或一篇文章，我们进行了边读边想象画面的“放电影”。课堂上有很多同学积极参与，“放了好多场电影”。表扬表扬自己嘎！坚持，加油啊！
+
+### 本日推文
+
+[顾明远：教育要树立“健康第一”的理念 | 观点](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651550099&idx=1&sn=ca8696155af7e328d836631027771c7b&chksm=80348852b7430144c11473afc7bd9d987f5472c5dc5d21d9ac5e2213062c1dcf9e90121b973f&mpshare=1&scene=1&srcid=0917Ky8hvsqJutf16wQ8ZYFb&sharer_sharetime=1600330923272&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa6702de0835dbd7af62dce575f64111f65a509a71a4112e2dd22eae745bcee1150968dc4d900f0754e2ae8dd813f01b3364db2f2f5773193f84b13c0c220eaac9549ad35ed6ef282bf74492c55d15be27ddd69117380b11a1408d9032f0ec3f8f9fd381ac7d179fae06f9380fa49d1a55992c311e23582544844&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AbMfv2Ya8Ks3P%2FR5c2LkjKw%3D&pass_ticket=pe6irqzXJL%2Br8X3nVTDaxmoqpiX%2B%2F%2BhfuDfY3xPu%2F9uacSF0tYAl94HtYyxkSk7r&wx_header=0)
+
+[习近平：今天我到这里来，也是受教育](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658616060&idx=1&sn=84bc9fc7b5fa29cc95aa524ab89f1465&chksm=bd5f96938a281f85d8464737f4712f1ba631d7da1069de5a4ca8a97cc934f495ebe8233a0e48&mpshare=1&scene=1&srcid=0917H5gjVRJdeEfQayiHGKcy&sharer_sharetime=1600330941103&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa6702e464beb0128c40f8a7bef1b6d5495949fe114bbd17c2e6f2271173a3725f392feb5ba550e4fbb78480881de45819d56d38a689fca1f851b3739bfb93a4ab8cd0caa498760c2b378b7fa54f040a91eb9fcf7ff60698e9a0c3e680eef5e06630a522cf217e3a26c6fa317fc1bb469245bed058de40f06981a&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AbUryBhBGj3APjAIks57Ki0%3D&pass_ticket=pe6irqzXJL%2Br8X3nVTDaxmoqpiX%2B%2F%2BhfuDfY3xPu%2F9uacSF0tYAl94HtYyxkSk7r&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 五  
+>     
+> 黑暗  
+>     
+> 怎样幽深的描画呢   
+> 心灵的深深处  
+> 宇宙的深深处  
+> 灿烂光中的休息处  
+>
+> 六  
+>
+> 镜子  
+>
+> 对面照着  
+> 反而觉得不自然  
+> 不如翻转过去好  
+>
+> 七
+>
+> 醒着的  
+> 只有孤愤的人罢!  
+> 听声声算命的锣儿  
+> 敲破世人的命运
+>
+> 八
+>
+> 残花缀在繁枝上  
+> 鸟儿飞去了  
+> 撒得落红满地——  
+> 生命也是这般的一瞥么
+
+### 文中生字
+
+> <font color=lightyellow>**缀()	瞥()**</font>
+
+### 古诗一首
+
+> <font color=lightgreen>**游园不值**</font>    
+>
+> <font color=lightblue>**宋     叶绍翁**</font>    
+>
+> 应怜屐齿印苍苔，  
+> 小扣柴扉久不开。  
+> 春色满园关不住，  
+> 一枝红杏出墙来。  
+
