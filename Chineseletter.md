@@ -686,9 +686,9 @@
 > <font color=lightgreen> **《繁星》冰心**</font>  
 >
 > 五  
->     
+>    
 > 黑暗  
->     
+>    
 > 怎样幽深的描画呢   
 > 心灵的深深处  
 > 宇宙的深深处  
@@ -718,7 +718,7 @@
 
 ### 文中生字
 
-> <font color=lightyellow>**缀()	瞥()**</font>
+> <font color=lightyellow>**缀(zhuì)	瞥(piē)**</font>
 
 ### 古诗一首
 
@@ -730,4 +730,77 @@
 > 小扣柴扉久不开。  
 > 春色满园关不住，  
 > 一枝红杏出墙来。  
+
+
+
+## 2020年9月18日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！下周我们进入第二单元的学习，学习重点是——阅读时尝试从不同角度去思考，提出自己的问题。这个内容在三年级上学期我们的预习案最后一题“质疑”中就有所体现，设计目的就是引导孩子们从不同角度提出自己的疑问，且是有价值的问题。一年的训练内容正好和第二单元的学习内容不谋而合，请提醒孩子们把第5课预习案收好，课堂上要用。另，<font color=red>**第一单元的内容学习完了，需要做整理复习，包括作业单的整理，知识点的整理。具体方法：1.把每一篇课文读正确， 读熟练。2.把每一课的一类词、二类词和积累词，写正确，写规范。3.读书上笔记，并作思考、记忆。4.背诵指定篇目内容，做到正确，流利。5.把“练习一”中勾画的词语读熟，写正确，写规范。6.查看改错**</font>，不清楚的及时请教，或“微”我。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！到今天为止陈老师去少年宫校点给二年级同学上阅读课已经一周了，当我上完课回到办公室令我欣慰的是很多同学把自己需要批改错的作业放在了办公桌上。我细数了一下，还是有一部分孩子不愿意和陈老师交流，更不愿意来办公室找陈老师改错。我想了想原因不外乎一是胆小不敢，二是因为贪玩不改错，三是改错不愿意付出耐心，四是没有改错习惯，五是家长不“盯”，陈老师也没有时间管，也就放任自己……或许还有其它原因。但无论什么原因，陈老师要说的是，积极“盯”陈老师的，他（她）永远是走在最前面的，也一定是最优秀的。你们知道，二年级5个班的同学第一次上陈老师的阅读课是那么专心、认真。阅读课的第一课主题是课堂常规，我让他们用“接龙”游戏作自我介绍。每个同学介绍完了，陈老师都要说：“顶呱呱，陈老师喜欢你啊！”他们个个表现好！你们知道，我对他们说了275遍这样的话，虽然自己感觉很累，但心里明白：因为在他们第一次上陈老师的课就能够得到陈老师的夸奖，那一定是最开心的，相信他们下周的学习会很积极的。遗憾陈老师没有那么多时间面对你们，遗憾有同学不够“积极”。愿你们下周表现更好嘎！
+
+### 本日推文
+
+[勿忘！勿忘！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658616189&idx=1&sn=72d030c0ca28537c27f6f69e643b7562&chksm=bd5f97128a281e046c0fb26e9cd3af06ba4a4034b08c124d9daabeb5728983e50e392703d53c&mpshare=1&scene=1&srcid=0918TY6Ia566eSiEsJ1p43Vg&sharer_sharetime=1600416310968&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c4c9c4773a9a31cf68932da8c4f857a08e72cb10e5e91bddb280cc1d5bc850a9f4ab62449099c644997cf87ae1532490eef2d4cb3c7f89b9f3e52b3ccf961cc6ac6cbaaf394ae3b2e6d763adad431f338aed13ef444d4be9dadabddba58477ecb3ca0ff73939a3a862c5c12e6f4706a1dba252640cee6ce1a&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AfvN4FsPIdDBMyvtaJcHmgY%3D&pass_ticket=dtcakI9aNfI1M5F2mOpEO%2FEI%2BvLLBaZBuBZDCwJsMr7d%2BtxcExhUQslkYayhQ2vu&wx_header=0)
+
+[让孩子知道，学习是一种责任](https://mp.weixin.qq.com/s?__biz=MzU4NjMyNzI4NA==&mid=2247500079&idx=1&sn=c644f55bb8fe2c2cc9cd87dc808d2e97&chksm=fdfe74b4ca89fda204911e3f4256952b24ca5b494c23ce330bc78486b1d1b1c920e8015b0779&mpshare=1&scene=1&srcid=091742Z45W0IO8JChZr533Bc&sharer_sharetime=1600416341532&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa670f4cf04b3c184d44f4694bc92d4d4098f72409c5a0e97d9c17f3d40bd5588e49f26b2a60eba849b5f51c58d41b20bcc84043fc26f9476e18542bbf895b3d863b83eae9136a336e71bdb98d835841443dd4f991df82a42e783fa699f6af940f7d16368ffdc5bbef3bd81b51d1e60f0d0bc52b185cfad21e656&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=ASVZn6CrsndKi85LzhC7b6s%3D&pass_ticket=dtcakI9aNfI1M5F2mOpEO%2FEI%2BvLLBaZBuBZDCwJsMr7d%2BtxcExhUQslkYayhQ2vu&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+>
+> 九
+>
+> 梦儿是最瞒不过的呵!  
+> 清清楚楚的  
+> 诚诚实实的  
+> 告诉了  
+> 你自己灵魂里的密意和隐忧  
+>
+> 十  
+>
+> 嫩绿的芽儿  
+> 和青年说  
+> "生长你自己!"  
+> 淡白的花儿  
+>
+> 和青年说  
+> "孝敬你自己!"  
+> 深红的果儿  
+> 和青年说  
+> "牺牲你自己!"  
+>
+> 十一  
+>
+> 无限的神秘  
+> 那边寻他  
+> 微笑之后  
+> 言语之前  
+> 即是无限的神秘了  
+>
+> 十二  
+>
+> 人类呵!  
+> 相爱罢  
+> 我们都是长行的游客  
+> 甸著统一的归宿
+
+### 文中生字
+
+> <font color=lightyellow>**甸(diàn)**</font>
+
+### 古诗一首
+
+> <font color=lightgreen>**乡村四月**</font>    
+> <font color=lightblue>**宋   翁卷**</font>      
+>
+> 绿遍山原白满川，  
+> 子规声里雨如烟。  
+> 乡村四月闲人少，  
+> 才了蚕桑又插田。    
 
