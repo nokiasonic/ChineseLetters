@@ -866,3 +866,61 @@
 > 不要人夸好颜色，  
 > 只留清气满乾坤。
 
+
+
+## 2020年9月22日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天我们进入“提问策略”单元的学习，第5课《一个豆荚里的五粒豌豆》的学习任务是——读完课文会提出问题。课堂上引导孩子们完成对课文整体内容的把握，接着以四人小组合作的学习方式讨论从本课中提出的问题。从课堂上孩子们学习的情况看，前期预习课文到位的同学一定跟得上老师的节奏。遗憾有同学连课文都读不通，更何况听懂课文。上周提醒同学们带第5课的《预习案》，今天课堂上就用上了。还是遗憾有同学没有带，也就没有交。请你们提醒孩子们按陈老师要求完成每一项任务。谢谢啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天学习了第5课的内容，学习任务还有一半明早继续完成！记得带第五课预习案嘎！从近段时间看你们的改错问题，实在不尽人意。我也在反思：语文改错确实是比较琐碎，一个标点或一个字不过关就会影响着整份作业单不能过关。但这是必须的。有优秀同学的改错做法值得你们学习：他们一定是拿到作业单就及时地完成改错，第一时间就找陈老师面批。或是在家里认真完成改错后，第二天找陈老师面批完成的。遗憾有一小部分孩子连开学第一天的错误都不改，也不管。再加上从上周起，我基本上下午放学后回到本部这边只能批改主动放在办公桌上的改错作业。我为此也在想办法。加油啊！
+
+### 本日推文
+
+[今日秋分](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651550582&idx=2&sn=fa4902bd43b6c53b8a1d149061f046ba&chksm=80348ab7b74303a1868badcfebe57ef43d7aa52771be8d94d2006e6269655b018e6b0f73a016&mpshare=1&scene=1&srcid=0922x6sOhIKO8sXbOP4wCLGE&sharer_sharetime=1600765182954&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d7c222687af3e5f44a49d94f3ea656f57426ee7d6fe5cae7185566f90ff93b15312d0094735b1dba8f3e9e38f150bc467b144c2e77c6d23066dd0b2f0c0f5be146f427cd89dc33313fee5cbf7f9dc2acacea5259365e112477ac57b839aa71efac5c9070b1d7b5b704e84b6e7eb8160b5ab39ea52be3315cc6&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AdGaO6dNYSzlTD1c%2B%2BK12rw%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+[不要轻易认为青春期的孩子是“坏孩子”！](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651550582&idx=1&sn=5d407cb215d40d110e14acf5355d3056&chksm=80348ab7b74303a14a0952b4a8d40168cecbd3dd04f13eead9c9ffebd74d0f2aab79f680454d&mpshare=1&scene=1&srcid=0922GQhxySEzeMI8wJd4MAOt&sharer_sharetime=1600765204050&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06392c1d0ff861c58896bfcf7ccf9cb84e3b2ac71d6ac620a1a3bd5f382964afec6516b20ef17c27e086ca3119a21bbc1af721953323bbaa60a713853f824799714b2a5987374a4757625125b6d1ded6d77c5d128028e91ebc8f5b9fc38ba7fca535663e166e70004d8740cae7a3eb79a70f5baaab9fe12a88&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AWDXZyG8PStoUmQFbMtM%2FLQ%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 一七
+>
+> 我的朋友!  
+> 为什么说我"默默"呢  
+> 世间原有些作为  
+> 超乎语言文字以外  
+>
+> 一八
+>
+> 文学家呵!  
+> 善意的撒下你的种子去  
+> 随时随地要发现你的果实  
+>
+> 一九
+>
+> 我的心  
+> 孤舟似的  
+> 穿过了起伏不定的时间的海  
+>
+> 二〇
+>
+> 幸福的花枝  
+> 在命运的神的手里  
+> 寻觅着要付与完全的人  
+
+
+### 古诗一首
+
+> <font color=lightgreen>**石灰吟**</font>    
+> <font color=lightblue>**明    于谦**</font>        
+>
+> 千锤万凿出深山，  
+> 烈火焚烧若等闲。  
+> 粉骨碎身浑不怕，  
+> 要留清白在人间。
+
