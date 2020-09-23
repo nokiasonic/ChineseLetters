@@ -924,3 +924,100 @@
 > 粉骨碎身浑不怕，  
 > 要留清白在人间。
 
+
+
+## 2020年9月23日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天学习了第6课《夜间飞行的秘密》，主要训练从不同角度提问中的“针对全文提问”的具体方法：1.从课文写法上来提问。2.从课文中得到的启示，联系生活经验来提问。需要你们引导孩子们在课外阅读中强化巩固练习。另，我每天批改作业作登记时，总有孩子缺交作业，究其原因是：要么没有做，要么做错作业本，要么做了忘记收……我想：我们得想办法解决这些看似小的问题。方法：1.对照《作业记录本》逐一核实完成情况。2.作业分学科放。3.作业合并学科放。4.和文具盒放在一起。任何好习惯不是一朝一夕养成的，总是按照标准日复一日，月复一月，每天坚持，每天监督，逐步培养成。最后提醒：请查看1号本上的1《观潮》2《走月亮》5《一个豆荚里的五粒豆》改错情况。加油吧！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！表扬你们今天学习的积极性很高啊！请按照今天课堂上学习提问的方法在课外阅读中去练习，坚持阅读，反复巩固，相信你们的阅读会有更深的思考力。另，你们中有同学总在作业上出问题，请一定反思自己，针对自己的实际情况采取相应的措施，努力克服不足，争取有进步嘎！“作业展示”和“听写小老师”活动报名正在进行中，望你们积极参与。加油吧！
+
+### 本日推文
+
+[人民日报列出优秀父母的9条标准！有几条你没做到？](https://mp.weixin.qq.com/s?__biz=MzAxOTYyMDQ5Mg==&mid=2650936517&idx=3&sn=4bec06462214c6a1a025a2e57595e91b&chksm=80328326b7450a307edc0e86ce1c1541cff9f21da5991dd189fe0b2430cfec93e6ec84eba701&mpshare=1&scene=1&srcid=0922WqbvzKALfWcB3yJ68SOS&sharer_sharetime=1600849276599&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=cf75bbfba147d8f0d62bdf124594ad9c4ee0f73f33e223a245ae6db726bcdc0f17ef56673b89c55326f388909a4e16402dfbc68ee2b91f8683ffb4a13d8f6e743e6e210386598f34e7b07af72758dfff3d99ac9c8ed617f1ac5b3d61c15f1b57dc2375460b5b46d538bcf4b130fc76434d89af0713aac7f0d11ee30b839b1047&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AUXLbP4Qh0zytoeF65q4%2B1U%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+[14岁男生跳楼身亡真相曝光：夺走孩子命的，不是妈妈那两巴掌](https://mp.weixin.qq.com/s?__biz=MjM5MDc0NTY2OA==&mid=2651520016&idx=1&sn=92425b99ee711729f65a605dab024189&chksm=bdbe493b8ac9c02dde0b6b0df1c0d8c76ab4358abe8183e84d360d8a748b43396ee9c1555bc3&mpshare=1&scene=1&srcid=0921FLZVSUKfXaY1YzditroK&sharer_sharetime=1600849293229&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c65d3d1ae1afabae5a732b310308775069ea051ce059378593d29f29ae70378fd43406cbfb299c870c5d8330580798322d9fdcc1aad65cbecdb7b1a684e5d5778eba273332f4708038097ffb017def59eb05781e5f49f50c0a584db063275556b659aadb8c5d9c03b09406c5fbca768fb012676559ef908e0&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AekeJYLwK9u9ndnjBiFjwvE%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 二十
+>
+> 幸福的花枝  
+> 在命运的神的手里  
+> 寻觅着要付与完全的人  
+>
+> 二十一
+>
+> 窗外的琴弦拨动了  
+> 我的心呵!  
+> 怎只深深的绕在余音里  
+> 是无限的树声  
+> 是无限的月明  
+>
+> 二十二
+>
+> 生离——  
+> 是朦胧的月日  
+> 死别——  
+> 是憔悴的落花  
+>
+> 二十三
+>
+> 心灵的灯  
+> 在寂静中光明  
+> 在热闹中熄灭  
+>
+> 二十四
+>
+> 向日葵对那些未见过白莲的人  
+> 承认他们是最好的朋友  
+> 白莲出水了  
+> 向日葵低下头了  
+> 她亭亭的傲骨  
+> 分别了自己  
+>
+> 二十五
+>
+> 死呵!  
+> 起来颂扬他  
+> 是沉默的终归  
+> 是永远的安息  
+>
+> 二十六
+>
+> 高峻的山巅  
+> 深阔的海上——  
+> 是冰冷的心  
+> 是热烈的泪  
+> 可怜微小的人呵!  
+>
+> 二十七
+>
+> 诗人  
+> 是世界幻想上最大的快乐  
+> 也是事实中最深的失望  
+
+### 文中生字
+
+> <font color=lightyellow>**朦胧(méng lóng)	憔悴(qiáo cuì)	巅(diān)**</font>
+
+### 
+
+### 古诗一首
+
+> <font color=lightgreen>**竹    石**</font>    
+> <font color=lightblue>**清   郑燮 **</font>        
+>
+> 咬定青山不放松，  
+> 立根原在破岩中。  
+> 千磨万击还坚劲，  
+> 任尔东西南北风。
+
+
+
