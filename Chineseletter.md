@@ -1012,7 +1012,7 @@
 ### 古诗一首
 
 > <font color=lightgreen>**竹    石**</font>    
-> <font color=lightblue>**清   郑燮 **</font>        
+> <font color=lightblue>**清   郑燮**</font>        
 >
 > 咬定青山不放松，  
 > 立根原在破岩中。  
