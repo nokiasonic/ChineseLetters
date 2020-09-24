@@ -1012,7 +1012,7 @@
 ### 古诗一首
 
 > <font color=lightgreen>**竹    石**</font>    
-> <font color=lightblue>**清   郑燮**</font>        
+> <font color=lightblue>**清   郑燮**</font>     
 >
 > 咬定青山不放松，  
 > 立根原在破岩中。  
@@ -1020,4 +1020,93 @@
 > 任尔东西南北风。
 
 
+
+## 2020年9月24日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天学习了第7课《呼风唤雨的世纪》，学习重点是会提有价值的问题。孩子们在阅读中会伴随着一些问题产生。问题可以针对课文中的部分内容提问，还可以针对课文全文内容提问。其中，针对全文提问可以从课文写法上提问，也可以从课文中得到的启示，联系生活经验提出。问题提出后要学会筛选出有价值的问题。有些问题不影响对课文内容的理解，这样的问题就没有多少价值；有的问题可以帮助理解课文的内容，或能引发深入思考，这样的问题就有价值。从今天起，孩子们要在课外阅读中巩固练习。学会提问，尝试自己解决；学会提出有价值的问题，学会与老师或同伴讨论解决。最重要的是要在《预习》案中的“质疑”内容中体现出来，提出有价值的问题，带着问题听课，这将是提升学习能力的一种很有效的方法。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天我们学习完了第二单元的前3篇课文，学习重点是——学会提出有价值的问题。这个单元的最后一课第8课是篇略读课文，你们要在学习方法上再次巩固，用学到的方法去完成这篇课文的预习作业。（本周日完成）你们从今天起，还要在课外阅读中尝试练习提出有价值的问题。这是一种很重要的能力，望你们自觉锻炼啊！另，请整理作业单，加强改错，不懂及时解决。加油吧！
+
+### 本日推文
+
+[让孩子们跑起来](https://mp.weixin.qq.com/s?__biz=MjM5NTA1NjE3NQ==&mid=2649924803&idx=1&sn=ec81866d41f286ab678eaf0f06ef98d0&chksm=bef85b83898fd2954d4565226cdfaa7327423eeca38cefc52336488c3f68a87bd02dc2d7d7ea&mpshare=1&scene=1&srcid=0924RgCvkPuneRvJmdUJsKp9&sharer_sharetime=1600938236830&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28ea5bb2b9a4f45d2dd8d3fc70ee2a9f700d2d874639d15568850afb584483eaf9c13c17db660e4e364740cb01649dee4d223363c4f5c12dbf4b622b3c7d4afc79923f7f3ebcb199e2c3491e8e2e063e2b2b57601d56bf8e60b023f761c0e2423f61c6a099d6daca9c1dbc277cf1a66e70efb3c32b750020dd83&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AZlUFh57Ma3uL2J7CjtXs5c%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+[不要轻易认为青春期的孩子是“坏孩子”！](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651550582&idx=1&sn=5d407cb215d40d110e14acf5355d3056&chksm=80348ab7b74303a14a0952b4a8d40168cecbd3dd04f13eead9c9ffebd74d0f2aab79f680454d&mpshare=1&scene=1&srcid=09240OZZvqllaQDtCNMClhiY&sharer_sharetime=1600938274670&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06667d57ad7d8e59b1d95a1b7297b77961ea2d6f146ae09987f70c1f743d7bb21b3b37fe052b32ea9d915906bf6beacaafe22d25bba3c3ef6aa0ab9a3c8fe0abfa00b2cb83ecf3a48198541a5f1eea08dfef0c27d5d8197acb7c8508374851148cbe01ede4757411bef198faf118076a6cb40db3b134b876ba&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AXpZhOD%2BCv2M6elPSc43rgY%3D&pass_ticket=%2Ba6jKDfCqvjTq3rPcMVcvsXQSWHETCg9xNi9ioQyUaPKkv0UQpAJlB%2Fm8WzgyHr9&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 二八
+>
+> 故乡的海波呵!  
+> 你那飞溅的浪花  
+> 从前怎样一滴一滴的敲我的盘石  
+> 现在也怎样一滴一滴的敲我的心弦  
+>
+> 二九
+>
+> 我的朋友  
+> 对不住你  
+> 我所能付与的慰安  
+> 只是严冷的微笑  
+>       
+> 三十
+>
+> 光阴难道就这般的过去么  
+> 除却缥渺的思想之外  
+> 一事无成!  
+>
+> 三一
+>
+> 家是最不情的——  
+> 人们的泪珠  
+> 便是他的收成  
+>
+> 三二
+>
+> 玫瑰花的剌  
+> 是攀摘的人的嗔恨  
+> 是她自己的慰乐  
+>
+> 三三
+>
+> 母亲呵!  
+> 撇开你的忧愁  
+> 容我沉酣在你的怀里  
+> 只有你是我灵魂的安顿  
+>
+> 三四
+>
+> 创造新陆地的  
+> 不是那滚滚的波浪  
+> 却是他底下细小的泥沙  
+>
+> 三五
+>
+> 万千的天使  
+> 要起来歌颂小孩子  
+> 小孩子!  
+> 他细小的身躯里  
+> 含着伟大的灵魂  
+
+### 文中生字
+
+> <font color=lightyellow>**缥渺(piāo miǎo)	嗔(chēn)	酣(hān)**</font>
+
+### 
+
+### 古诗一首
+
+> <font color=lightgreen>**所   见**</font>    
+> <font color=lightblue>**清   袁枚**</font>     
+>
+> 牧童骑黄牛，  
+> 歌声振林樾。  
+> 意欲捕鸣蝉，  
+> 忽然闭口立。
 
