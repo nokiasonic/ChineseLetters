@@ -1110,3 +1110,106 @@
 > 意欲捕鸣蝉，  
 > 忽然闭口立。
 
+
+
+## 2020年9月25日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天课堂上学习了两篇习作范文，目的是让孩子们学习点评文章。具体方法是：1.结合习作内容梳理出习作要求。2.结合习作要求作习作前思考——“画竹子”，即我们训练了一年的“三段式”提纲。3.结合“三段式”提纲，梳理出具体方法。4.围绕习作要求给习作取题目。其中最重要的是“三段式”提纲，即文章结构。文章开头内容和结尾内容做到首尾呼应，文章中间部分内容紧扣习作要求——有顺序，理由充分。要写出充分的理由，就需要围绕中心句写出特点。接着就让孩子们再次修改自己的习作。本周天我们还要继续进行修改，请提醒孩子们带4号本。加油啊！
+
+### 学生寄语
+
+爱的小朋友们：下午好！今天课堂上带领孩子们学习了文章的点评方法，你们很认真地按照方法完成自己习作的修改。提醒周天上课带4号本继续完成修改嘎！另，第二单元的课文学习即将结束了，你们要充分地读熟每一篇课文，认真完成字词抄写作业。对改错有困难的同学一定要学会积极主动找陈老师面批改错。学习之余别忘了坚持每天的课外阅读，加油吧！
+
+### 本日推文
+
+[如何让孩子爱上阅读，这几点父母都做到了吗？](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247492831&idx=2&sn=f6e7ba664232f3fca18c2a0aefee0a4e&chksm=f9432682ce34af94fba3c118d3a2de8e3dfa1fed229236bb13c2a2d2ee6e73aa29225a345561&mpshare=1&scene=1&srcid=0925ICQK5GuIcf9JzD2LRCy5&sharer_sharetime=1601024550089&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c128d7cb2abf1ecd31097b9a51267980e505680321d4ef4b783d40ebdb214df5cb9336a65eb567a2131083cc9f2c245c6b6e396c3ee171274e656a36bf1a60e407d0c6df1a246a51769ac9f0d7705d3c18039f986a34c59e5ffc84bfa2048aa4e8b66d5f91bdd742823b4aa900b5b5e934d4ae08e697cb8a3&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AWCewJGPRtqIu5ho8dFYQgQ%3D&pass_ticket=QFZ1%2FLl7SNHkpV4q0nty%2F7gpOyA7yXitn1aZiNZ2NHzNyhyvgCK4B8hi0vmhtjmV&wx_header=0)
+
+[“云南普法 每日一典”百集短视频上线！带你轻松学法](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247585871&idx=3&sn=7d4276398a8a7d93360e41610877af2e&chksm=fa4aab2ecd3d2238de24555a5f4ab26b4317422c823b37c03a1868abc53c1e35867f9982a3f7&mpshare=1&scene=24&srcid=0925lkhYgWCe2H9DBy9vZf3P&sharer_sharetime=1601012915484&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=62090538&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=ARJgGNkn%2FgaWWjivvbmxuWk%3D&pass_ticket=QFZ1%2FLl7SNHkpV4q0nty%2F7gpOyA7yXitn1aZiNZ2NHzNyhyvgCK4B8hi0vmhtjmV&wx_header=0&key=590f90317dcde6d7a9a99d0b52f98f1b60efbedb90a871c6c0350db004af06f228e21c29c5f902ab5572fbf8cf12d83545b357c206401d8d2ccb768888f329971f0a8eac171c40cdda5d64c1ece2c749cbdc4221c0ef6c182db99a91c8633f929d34eadc269e1624997bf4ac50113d705d79032b2928b338f5c01f79805c2a98&uin=MzU0MzU2OTE1)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 三十六
+>
+> 阳光穿进石隙里  
+> 和极小的刺果说  
+> "借我的力量伸出头来罢  
+> 解放了你幽囚的自己!"  
+> 树干儿穿出来了  
+> 坚固的盘石  
+> 裂成两半了
+>
+> 三十七
+>
+> 艺术家呵!  
+> 体和世人  
+> 难道终久的隔着一重光明之雾  
+>
+> 三十八
+>
+> 井栏上  
+> 听潺潺山下的河流——  
+> 料峭的天风  
+> 吹着头发  
+> 天边——地上  
+> 一回头又添了几颗光明  
+> 是星儿  
+> 还是灯儿
+>
+> 三十九
+>
+> 梦初醒处  
+> 山下几叠的云衾里  
+> 瞥见了光明的她  
+> 朝阳呵!  
+> 临别的你  
+> 已是堪怜  
+> 怎似如今重见!
+>
+> 四十
+>
+> 我的朋友!  
+> 你不要轻信我  
+> 贻你以无限的烦恼  
+> 我只是受思潮驱使的弱者阿!  
+>
+> 四十—
+>
+> 夜已深了  
+> 我的心门要开着——  
+> 一个浮踪的旅客  
+> 思想的神  
+> 在不意中要临到了  
+>
+> 四十二
+>
+> 云彩在天空中  
+> 人在地面上  
+> 思想被事实禁锢住  
+> 便是一切苦痛的根源  
+>
+> 四十三
+>
+> 真理  
+> 在婴儿的沉默中  
+> 不在聪明人的辩论里  
+
+### 文中生字
+
+> <font color=lightyellow>**潺潺(chán chán)	衾(qīn)	禁锢(jìn gù)**</font>
+
+### 
+
+### 古诗一首
+
+> <font color=lightgreen>**村居**</font>    
+> <font color=lightblue>**清   高鼎**</font>     
+>
+> 草长莺飞二月天，  
+> 拂堤杨柳醉春烟。  
+> 儿童散学归来早，  
+> 忙趁东风放纸鸢。
+
