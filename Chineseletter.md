@@ -1120,7 +1120,7 @@
 
 ### 学生寄语
 
-爱的小朋友们：下午好！今天课堂上带领孩子们学习了文章的点评方法，你们很认真地按照方法完成自己习作的修改。提醒周天上课带4号本继续完成修改嘎！另，第二单元的课文学习即将结束了，你们要充分地读熟每一篇课文，认真完成字词抄写作业。对改错有困难的同学一定要学会积极主动找陈老师面批改错。学习之余别忘了坚持每天的课外阅读，加油吧！
+亲爱的小朋友们：下午好！今天课堂上带领孩子们学习了文章的点评方法，你们很认真地按照方法完成自己习作的修改。提醒周天上课带4号本继续完成修改嘎！另，第二单元的课文学习即将结束了，你们要充分地读熟每一篇课文，认真完成字词抄写作业。对改错有困难的同学一定要学会积极主动找陈老师面批改错。学习之余别忘了坚持每天的课外阅读，加油吧！
 
 ### 本日推文
 
@@ -1212,4 +1212,104 @@
 > 拂堤杨柳醉春烟。  
 > 儿童散学归来早，  
 > 忙趁东风放纸鸢。
+
+## 2020年9月27日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天重点讲讲作业记录。我们对听、记作业记录训练了一年，方法是：陈老师口述，孩子们作记录。要求：1.记录完整。（包括日期、星期几。）2.记录正确。3.认真书写。从本学期起，为了激发孩子们听课认真，发言积极，我每天会选择一个优秀同学按照我布置的作业抄在黑板上，要求第一时间抄作业，同桌互查、签字。有特殊情况的同学会安排班委一对一的进行二次核查。这样的训练快有一个月了，就目前的情况，今晚要求你们按照“范本”对您孩子的完成情况作评价和反思。作业记录是这样一个过程：观察——模仿——练习。习惯培养从抄作业开始。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！9月份的学习快结束了，今天针对抄作业一事作小结。你们知道：从三年级上学期我们第一天布置作业起，陈老师和你们说过，抄作业是自己的事情，陈老师没有发作业在群里的习惯，也不会让你们的爸爸妈妈帮忙抄作业。自己管理自己是现在最重要的事，也是必须的。我们的作业布置采取听记的方式，练习了一年了，你们棒棒滴！从本学期起，每天会选择一个优秀同学作代表帮助陈老师抄作业。我回顾了近段时间你们抄作业的情况，你们需要在态度上，方法上进行改进。观察——模仿——练习，是你们每天学习的一个过程，你们要端正态度，认真完成。这是一个学习的过程，同时也是对待一件事的态度。认真做事，从今天起，我们努力前行啊！
+
+### 本日推文
+
+[有一种精神叫女排！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658618371&idx=3&sn=5e36dcd22ab35790879fa1f8a8afacf5&chksm=bd5f986c8a28117afbb93dd73becce6a15b9f3333118242033647e3bb3d530405bf42aa76ba8&mpshare=1&scene=1&srcid=0927q5tg7AuSNtt26yNsGIUl&sharer_sharetime=1601197248879&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca0673f2ca4ee2b666a9ad360835b29a78aa572114b471c86c07fc84c8963cc4f72c83f2a447065cec002d53f9cabdecf8e169bfd5cdcf322066e2494538d58b4d4433d9aa3b37ef2b6d1eac5cd197f7cdfc82b6ace2ab7084b1fae3600444df19184b1cefeaf6c7772607fafebb28634a93dbd102bb6c86bf9e&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AavoYOnw7XPxA3NvRkYuaDQ%3D&pass_ticket=QFZ1%2FLl7SNHkpV4q0nty%2F7gpOyA7yXitn1aZiNZ2NHzNyhyvgCK4B8hi0vmhtjmV&wx_header=0)
+
+[最高礼遇！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658618706&idx=1&sn=8aabea6d6a360c8b7140eebe80ef7bdd&chksm=bd5f993d8a28102bb9d2b1be1f1f1d316136ac4340ee06bde2cae6af02a9efadb45c7135fb87&mpshare=1&scene=24&srcid=0927ogIj10Ef2LnXM8n3sWVB&sharer_sharetime=1601190654999&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=62090538&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AWhd9dI5vKXAAWju2ONZWC0%3D&pass_ticket=QFZ1%2FLl7SNHkpV4q0nty%2F7gpOyA7yXitn1aZiNZ2NHzNyhyvgCK4B8hi0vmhtjmV&wx_header=0&key=799ec3b15052ed3ccd92b3c5c530d063868489ee31271b64ddb4c7281a1d26cdcc02a3597af161ef55b2fb314b44a99e1fdf601b528f6cb7392ca540ba790bd9b5768f2350e2e13f4535fa17939b8c9162f141a03e6e13bfdcf405424192d4ef451675e83597128d9affa7268f31bd9b6e07048952c8c72496c68c5ee5353c87&uin=MzU0MzU2OTE1)
+
+
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 四四
+> 自然呵!  
+> 请你容我只问一句话  
+> 一句郑重的话  
+> 我不曾错解了你么  
+>     
+> 四五
+>
+> 言论的花儿  
+> 开的愈大  
+> 行为的果子  
+> 结得愈小
+>
+> 四六
+>
+> 做饭上的蜡烛  
+> 依旧照着罢!  
+> 反复的调儿  
+> 弹再一阕罢!  
+> 等候着  
+> 远别的弟弟  
+> 从夜色里要到门前了  
+>
+> 四七
+>
+> 儿时的朋友  
+> 海波呵  
+> 山影呵  
+> 灿烂的晚霞呵  
+> 悲壮的喇叭呵  
+> 我们如今是疏远了么  
+>
+> 四八
+> 	 
+> 弱小的草呵!  
+> 骄傲些罢  
+> 只有你普遍的装点了世界  
+>
+> 四九
+>
+> 零碎的诗句  
+> 是学海中的一点浪花罢  
+> 然而他们是光明闪烁的  
+> 繁星般嵌在心灵的天空里  
+>
+> 五十
+>
+> 不恒的情绪  
+> 要迎接他么  
+> 他能涌出意外的思潮  
+> 要创造神奇的文字  
+>
+> 五一
+>
+> 常人的批评和断定  
+> 好像一群瞎子  
+> 在云外推测着月明  
+
+### 文中生字
+
+> <font color=lightyellow>**阕(què)**</font>
+
+
+
+### 古诗一首
+
+> <font color=lightgreen>**己亥杂诗**</font>    
+> <font color=lightblue>**清    龚自珍**</font>     
+>
+> 九州生气恃风雷，  
+> 万马齐喑究可哀。  
+> 我劝天公重抖擞，  
+> 不拘一格降人才。
+
+### 文中生字
+
+> <font color=lightyellow>**喑(yīn)**</font>
 
