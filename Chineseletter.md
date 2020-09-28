@@ -1054,7 +1054,7 @@
 > 对不住你  
 > 我所能付与的慰安  
 > 只是严冷的微笑  
->       
+>    
 > 三十
 >
 > 光阴难道就这般的过去么  
@@ -1212,6 +1212,8 @@
 > 拂堤杨柳醉春烟。  
 > 儿童散学归来早，  
 > 忙趁东风放纸鸢。
+>
+> 
 
 ## 2020年9月27日
 
@@ -1240,7 +1242,7 @@
 > 请你容我只问一句话  
 > 一句郑重的话  
 > 我不曾错解了你么  
->     
+>    
 > 四五
 >
 > 言论的花儿  
@@ -1312,4 +1314,95 @@
 ### 文中生字
 
 > <font color=lightyellow>**喑(yīn)**</font>
+
+## 2020年9月28日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早早自习时间和孩子们“介绍”了一个熟悉的同学，与其说“介绍”，其实是夸奖。我这样和孩子们说：“第一个夸奖：是因为这个孩子没有爸爸妈妈的陪伴能够自我管理，自主完成作业，自主进行复习。第二个夸奖：是因为答应陈老师10点睡觉就说到做到，并且一直在坚持。第三个夸奖，是因为改掉了睡前玩的习惯。”陈老师还建议大家以他为榜样，好好表现，争做优秀的自己。在这里我们夸奖孩子的变化与进步，其实更应该夸奖孩子的爸爸妈妈。是他们发现孩子的问题积极和老师沟通与交流，是他们紧密配合老师的结果。我们都清楚地明白：孩子身上任何一点改变与进步都离不开学校、家庭和孩子自己的努力。只要我们用心去培养孩子，“优秀孩子，那是别人家的。”就不会是神话，而是现实。加油吧！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！我们今天第一次隆重地“介绍”了一个优秀的同学，以后还会找时间找机会介绍更多优秀的同学，相信你们会积极努力，争做优秀的自己。昨天和你们讲了抄作业一事，从今天批改情况看得出你们的变化。但还是有一部分同学似乎没有改变。陈老师会静静地、耐心地等待你们的改变，相信你们会进步的。你们说，是吧？一天进步一小点，坚持不懈，你们就会进步一大步。加油啊！
+
+### 本日推文
+
+[15个表扬孩子和10个惩罚孩子的科学方法，转给家长！](https://mp.weixin.qq.com/s?__biz=MzA3MDUxNzkzNw==&mid=2247521112&idx=2&sn=cf45cf71422e9310eadcdb7aa2ca375f&chksm=9f394686a84ecf901c074996de2bd0d43f646a80c95f7c51aac31e7cfca0e436bf8c396c6eff&mpshare=1&scene=1&srcid=0922KruHwY0y3qBUEmqw2IwS&sharer_sharetime=1601283707977&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06aae7e5e1b2091bf3a898c7cb13073cf557ee8937959b4c14be4c82651f1c6974259c9da59dea2f2fc75bd2af50ec53894b339fb5fc8011ffea9787f264f451187296999e3d387a5abe554f5b1580b2bee0b92d99c298e85d93099702b9008bec4a8f2b46993047e5de01a87042d609b46be446776713679c&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AeTb7oCppJbfWE1OqGfAEYY%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+[从新石器时代延续到明清！云南这一遗址发现了什么](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247586396&idx=2&sn=3bd78e79639e9722d908596594ac7728&chksm=fa4aa93dcd3d202bf947d03fdb8d32b0de2c985f5959678e745538417d7d52b3015eebf530df&mpshare=1&scene=1&srcid=0927eSRqF06UbKHcaFuUQUfN&sharer_sharetime=1601283718254&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa670774ad12ddace9d8fea89fa0bbf067b60f1a0e08b90a800b256f23ff036ab8a6d80475fab4629884dc190241351c2c2e8a1e242f9f25e1cf4d570ab0a9c73908fbd014534fae818a958a0e8c51227293bc4de9abfcffdd1a33530599f8c081b6c664341acc4f58740ded853f8eb83c3ab7d05989475fce048&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AeGfR8TApJBtBX5WI8zph%2B8%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 五二
+>
+> 轨道旁的花儿和石子!  
+> 只这一秒的时间里  
+> 我和你  
+> 是无限之生中的偶遇  
+> 也是无限之生中的永别  
+> 再来时  
+> 万千同类中  
+> 何处更寻你  
+>
+> 五三
+>
+> 我的心呵!  
+> 警醒着  
+> 不要卷在虚无的旋涡里!  
+>
+> 五四
+>
+> 我的朋友!    
+> 起来罢  
+> 晨光来了  
+> 要洗你的隔夜的灵魂  
+>
+> 五五
+>
+> 成功的花  
+> 人们只惊慕她现时的明艳!  
+> 然而当初她的芽儿  
+> 浸透了奋斗的泪泉  
+> 洒遍了牺牲的血雨  
+>
+> 五六
+>
+> 夜中的雨  
+> 丝丝的织就了诗人的情绪  
+>
+> 五七
+>
+> 冷静的心  
+> 在任何环境里  
+> 都能建立了更深徽的世界  
+>
+> 五八
+>
+> 不要羡慕小孩子  
+> 他们的知识都在后头呢  
+> 烦闷也已经隐隐的来了  
+>
+> 五九
+>
+> 谁信一个小"心"的呜咽  
+> 颤动了世界  
+> 然而他是灵魂海中的一滴
+
+### 文中生字
+
+> <font color=lightyellow>**徽(huī))**</font>
+
+
+
+### 古诗一首
+
+> <font color=lightgreen>**出塞**</font>    
+> <font color=lightblue>**唐    王昌龄**</font>     
+>
+> 秦时明月汉时关，  
+> 万里长征人未还。  
+> 但使龙城飞将在，  
+> 不教胡马渡阴山。
 
