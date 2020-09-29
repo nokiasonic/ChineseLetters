@@ -1315,6 +1315,8 @@
 
 > <font color=lightyellow>**喑(yīn)**</font>
 
+
+
 ## 2020年9月28日
 
 ### 家长寄语
@@ -1405,4 +1407,89 @@
 > 万里长征人未还。  
 > 但使龙城飞将在，  
 > 不教胡马渡阴山。
+
+
+
+## 2020年9月29日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！今天因为持续开会中耽误了大家，抱歉啊！今晚有习作修改任务，近一半的同学在课堂上就完成了修改（第二次修改）。这样指导孩子们修改：一题目：或是借用习作主题《推荐一个好地方》，或是以地名为题。二结构：“三段式”1.开头：点出推荐的好地方是什么地方，在哪里。抓关键词“推荐”和“好地方”。2.中间：（1）抓特别之处写。（至少写3处）（2）每个特别之处作为一个自然段。（3）用中心句构段。（关键句放在首段：总—分）（4）有顺序。（有标志词等）（5）理由充分。（运用修辞手法等）3.结尾：点题。（首尾呼应）三标点符号运用正确，语句通顺。四书写认真。五卷面整洁。后续还会进行第三次修改。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！抱歉啦！今天耽误你们啦！今晚的习作修改按照课堂上讲过的评改要求完成就行，如你有困难一定要请教陈老师嘎！你们知道：每天积极围着陈老师改错，或问问题的同学一定是你们学习的榜样。他们学习劲头足，学习认真，这就是优秀的表现。今天开课前，陈老师又表扬了几个优秀的同学。只要你们能看到同学优秀的地方，就说明你们进步啦！快快动起来，用你们的慧眼学习他人之长，补己之短吧！加油！
+
+### 本日推文
+
+[励志！305斤小伙500天减128斤考上国防科大](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658619319&idx=1&sn=f217012e8e0ba9e5d7043ac6607a98fc&chksm=bd5f9bd88a2812ce04b8410b90f5fa5a3fac2b6e0402e5c20f7ac1ee37ecee358d9e50350e65&mpshare=1&scene=1&srcid=0929oKGtdgLliYbtv2Yk2tGu&sharer_sharetime=1601376487652&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=74c1d550118a3d2822b9781ff5a84eedc61bb778fee487f1fff29d9c6d1fd3788cc001cbc4f95ea615a292934a263668fcad8913098e02add5d38121cbe4606acca12eb41ba7feab64de8f97fd302e9e0f33a5b2452e1eee96a8f4101b663cb54a2caed486ed536dd207cb1288c11d60c7c69b29e9e2b956841040e3fa3ddef7&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=ActL%2FEjCvNPK0RZ%2Bg368iw4%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+[有了孩子≠成为“爸爸”！](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247492942&idx=3&sn=f4aa7b6689d5c9c2c232c5006a391e78&chksm=f9432713ce34ae05a8e05945a15952040771d9bccf0c2a64ff6b7900c2bce69cf3170062bd1c&mpshare=1&scene=1&srcid=0929NFwaPuwMdn03SdhTJJaT&sharer_sharetime=1601376514448&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca064af257491b6c56696c2e51150281002dd1a7e334241b2d666b448c739d9087351df93142163f5897dc7c6fcd5d0661bf86812fa738ea466ae99c48d4d1fa933f3a9ff34f3937d3da5cabb501c115548fa1708cd186e21351cd932b10b4d01adcd46bf62789118de4dd40fa594f69b5dbc09741b38eb6c386&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AeV86uuIw%2BXzMgn0loIr9n0%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **《繁星》冰心**</font>  
+>
+> 六〇
+>
+> 轻云淡月的影里  
+> 风吹树梢——  
+> 你要在那时创造你的人格  
+>
+> 六一
+>
+> 风呵!  
+> 不要吹灭我手中的蜡烛  
+> 我的家远在这黑暗长途的尽处  
+>
+> 六二
+>
+> 最沉默的一刹那顷  
+> 是提笔之后  
+> 下笔之前
+>
+> 六三
+> 指点我罢  
+> 我的朋友!  
+> 我是横海的燕子  
+> 要寻觅隔水的窝巢
+>
+> 六四
+>
+> 聪明人!  
+> 要提防的是  
+> 忧郁时的文字  
+> 愉快时的言语  
+>
+> 六五
+>
+> 造物者呵!  
+> 谁能追踪你的笔意呢  
+> 百千万幅图画  
+> 每晚窗外的落日  
+>
+> 六六
+>
+> 深林里的黄昏  
+> 是第一次么  
+> 又好似是几时经历过  
+>
+> 六七  
+>
+> 渔娃!  
+> 可知道人羡慕你  
+> 终身的生涯  
+> 是在万顷柔波之上  
+
+
+
+### 古诗一首
+
+> <font color=lightgreen>**凉州词**</font>    
+> <font color=lightblue>**唐     王翰**</font>     
+>
+> 葡萄美酒夜光杯，  
+> 欲饮琵琶马上催。  
+> 醉卧沙场君莫笑，  
+> 古来征战几人回？  
 
