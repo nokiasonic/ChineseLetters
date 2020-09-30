@@ -1493,3 +1493,64 @@
 > 醉卧沙场君莫笑，  
 > 古来征战几人回？  
 
+
+
+## 2020年9月30日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！开学一个月的学习结束了，表扬孩子们认真学习了一个月啊！提醒孩子们作“9月份评价”嘎！（在《作业记录本》里）随后陈老师也会以微信方式给每个孩子作反馈。放假期间的作业以读书和复习为主。每天坚持至少半个小时的课外阅读是必须的。复习内容包括1.把每一篇课文读正确、流利。2.牢记每一课的字词。（参照群里“范本”做好听写复习。）3.背熟指定背诵内容。4.认真做好每一次作业的改错。顺祝大家双节愉快！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！首先表扬你们越来越会听课了啊！只有你们做到专心听课，方能提高学习效率！我们一起努力，高效、扎实的上好每一节课嘎！放假期间不要忘记课外阅读，每天坚持课外阅读是你们学好语文的基础和关键。坚持阅读，会让你们更优秀啊！另外，今天下发了《古诗词资料》，请放在家里保管好，收假后我们进入古诗词的第二轮学习。顺祝放假愉快！
+
+### 本日推文
+
+[缅怀先烈 跟着总书记一起感受天地英雄气](https://mp.weixin.qq.com/s?__biz=MzAxMjAyODcwMw==&mid=2650896585&idx=1&sn=2be42f961d76332121516495fd97e7cb&chksm=804dc6b9b73a4faf32fd021cfac108435b8ea77edaa49690813317ed692d7cb726ddb75ef84f&mpshare=1&scene=1&srcid=09300IEv1hxZKVztRiOqjsdg&sharer_sharetime=1601457904759&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=9323edc76735a22f560ca1bf945458be8a6f273352352285bdc1a7c6f3b9255091d1620748a2b3a81372e520e73961314cd8378b5d3c98d8f2dc15fe9163053d7fb541bce750fc3d3cd3ed96b4889d2654e6820532b664ddf2539b2cde9f74506e871c28567f0469794f791c7e89a82fc590e902ab07c2ce2bb5dc3b4588a851&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AeT1dz5ucmG60MuaQE9MP3I%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+[孩子的表现都写在他的作业本和书本里](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247492942&idx=1&sn=e76f63c6fad87afff776594daaaf7c4f&chksm=f9432713ce34ae057cf1445232573e2b3bbfc54890e8e48ae41effefe3036f3fecf3cd8a2d67&mpshare=1&scene=1&srcid=0929DRPsJ3UA2q2ATyCDuTgD&sharer_sharetime=1601457918110&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d72db0d93903e24c4fc179acdcbb7a161fe706692b953b11a958d2e283df06b37c1b89e1bbe5894e192ed5bb2567b7b71136529a4d656e59d171c878d55fb52bf14a861c313f82c9010fc8df7d4bccffaa17f2ce356664906a8e43edfe86fb84f0f0eba5ce2db26901c7ec5e85aa1534c4d8773fe91089a5fa&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AS2suBE10cZeTbb2iM98how%3D&pass_ticket=K0iwkHHDjV5fU%2B1LEmNZi7swPqfBMze46%2FcqWv%2Fmga3SKUHQ5MTYCmPlmWAvswMs&wx_header=0)
+
+### 每日一诵
+
+> <font color=lightgreen> **中秋节——但愿人长久，与君共良辰**</font>  
+>
+> 金风送桂香，玉露丹枫凉，又是一年中秋时。 
+>
+> 中秋节起源于上古时代，又叫八月节，月亮节，团圆节等，人们在这天欢聚一堂，赏月，吃月饼，饮桂花酒，寄情明月，思乡念人，祈盼丰收和圆满，是我国弥足珍贵的文化遗产。 
+>
+> 这从远古走来的中秋，带来斑斓的色调，带来月饼的香甜，带来家国两团圆，也带来了醉人的诗篇。
+>
+> “平分秋色一轮满，长伴云衢千里明。”山水染秋意，明月照笙歌，多少欢声笑语，多少杯觥交错，全家围坐，月在杯中，爱在心底，所念人在身旁，共度人间好时光。 
+>
+> “昨风一吹无人会，今夜清光似往年。”那迎面吹来的风可从故乡来，那缓缓升起的月可似故乡明，那奔波的人可有灯火可亲，那远方的人可踏上归程，但愿人长久，与君共良辰。 
+>
+> 不管身在旅途还是回归家园，中秋佳节的到来，总是给我们添了欢喜也添了思念。岁月匆匆而过，学会珍惜当下，学会感恩拥有，光阴荏苒，真情不减，心若靠近，天涯不远。
+>
+> 每一个中秋，都有思念在蔓延，每一个家园，都有烟火的温暖，每一个望月人，都有深情的挂牵。 
+>
+> 每一处故乡，都有亲切的名字，每一次离别，都有更好的遇见，每一次团聚，都有那祝福万千。 
+>
+> 愿此生此夜长好，愿明月明年共看。愿岁月温柔以待，美好相伴，愿山河从此无恙，国泰民安。
+>
+> 看月桂婆娑，听风露点点，中秋时分，可有秋思绵绵，静落你的窗前？ 
+>
+> 清光千里同，离合总关情，中秋月照着归人影，也是这人世间别样的风景。 
+>
+> 又是一年圆月升，心上归人慢慢行，一步一步，一程一程，有爱不怕相思远，有情终会有相逢。
+
+### 文中生字
+
+> <font color=lightyellow>**祈(qí )	斑斓(bān lán)	杯觥交错(bēi chou jiāo cuò)	荏苒(rěn rǎn)	婆娑(pó suō)**</font>
+
+
+
+### 古诗一首
+
+> <font color=lightgreen>**夏日绝句**</font>    
+> <font color=lightblue>**宋    李清照**</font>     
+>
+> 生当作人杰，  
+> 死亦为鬼雄。  
+> 至今思项羽，  
+> 不肯过江东  
