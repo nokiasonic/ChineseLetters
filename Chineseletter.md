@@ -1554,3 +1554,33 @@
 > 死亦为鬼雄。  
 > 至今思项羽，  
 > 不肯过江东  
+
+## 2020年10月09日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！从今天起，我们进入10月份的学习了。也从今天起，古诗词学习进入到第二阶段。（第一阶段的学习要求是：1.读正确。2.读流利。）第二阶段的学习要求是：<font color=lightblue>**1.把古诗抄写正确。2.了解诗人及古诗的创作背景。3.读古诗中的故事。4.讲古诗中的故事。**</font>每周末进行一次讲故事竞赛。期待孩子们积极参与，让我们的语文学习“诗情画意”些，加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！从今天起，《作业记录本》上的古诗完成抄写后需要自检自查，及时改错。从10月份起的古诗学习，你们要勤查资料，了解诗人及古诗的创作背景。还要找相关故事读一读，把读到的故事讲给爸爸妈妈听一听。每个周末开展讲故事比赛，（录音）需要5个同学参与。快快行动起来，踊跃报名参与嘎！提醒：今天的“词语竞赛卷”改错，不仅要把错误改在2号本上，（以词为单位改一遍就行），还要改在卷子上。（改在侧边）加油吧！
+
+### 本日推文
+
+[教育家陶行知：家长每天6个“一分钟”，成为孩子最好的导师](https://mp.weixin.qq.com/s?__biz=MzA5NTIyODgzOQ==&mid=2650210412&idx=2&sn=9612b5b908bbec4a5347d96098612a24&chksm=884126a4bf36afb27da8d0ba350df0ee6bbab50e7e130bf53f78e30a6093ef76f178156766d5&mpshare=1&scene=1&srcid=1006zBE0CSyeOhLtusiokBE7&sharer_sharetime=1602234354036&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d79904254f583198ff538c465f0220d8142a896fe251b114419cde8602ea12cc988bcccbd0ae451d129dfc29118649f848b61d01982bed9398cc1c8d39c4feb14097338e04933cdf7c1618c156d7263870903f640d5be7c69223a4d3c96c03044258c8689e069fd8fcd5b09bf25b60b39c5edacf30ce7fea49&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=Ac%2FiljMWLtTRDCzG74f1FQs%3D&pass_ticket=xtO0PIGNKCCt4aD8zpd8kWjLrwAlRNZe2oXx4APPTg%2FPf1xFeGcl2i7KT3ARh41r&wx_header=0)
+
+[红嘴鸥要回来了，是否带有病毒？来听听专家解读](https://mp.weixin.qq.com/s?__biz=MjM5MjYwMjQwMA==&mid=2654347544&idx=5&sn=56a3f4daacb9c416abe895c8c7fa4efd&chksm=bd6141578a16c84187aab238f4466653a3ca4d4d8d37ed68584b0acb2089137411ab616e74b4&mpshare=1&scene=1&srcid=10093J0XZiZOcXq7DNCVFgxP&sharer_sharetime=1602234373008&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa670d1282e850eb931f596375750b0e57f80011a219a69501fcc526b8643767fdc5e9c59e6ef69f577a9e6b12fa082909ec30e5c1e9a58cc92c11c8097acbc9594ec404ac12c338d20c856c616c6aedbbc7b9e4a8f4337b3f068008dde28e1ce184bc5b887df1666c488bb9bcc4c296751ef6c4bebf7b5064c23&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AefNwGQZ8hoCVrWHNqDeYys%3D&pass_ticket=xtO0PIGNKCCt4aD8zpd8kWjLrwAlRNZe2oXx4APPTg%2FPf1xFeGcl2i7KT3ARh41r&wx_header=0)
+
+### 每日一诵
+
+> 第1课 《观潮》
+
+### 古诗一首
+
+> <font color=lightgreen>**江南**</font>    
+> <font color=lightblue>**汉乐府**</font>     
+> 
+> 江南可采莲，莲叶何田田。  
+> 鱼戏莲叶间。  
+> 鱼戏莲叶东，鱼戏莲叶西，鱼戏莲叶南，鱼戏莲叶北。
+
