@@ -1584,3 +1584,38 @@
 > 鱼戏莲叶间。  
 > 鱼戏莲叶东，鱼戏莲叶西，鱼戏莲叶南，鱼戏莲叶北。
 
+## 2020年10月10日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！昨天进入古诗学习的第二阶段，要求是：1.写正确。2.读故事。3.讲故事，从《作业记录本》上看到了部分孩子的反馈情况。对古诗抄写作了批改，请提醒孩子们注意改错。本学期孩子们在学习作品的同时去了解作者，除了读一读，还要学会提取作者的关键信息，适当记一记。孩子们在通过查资料了解古诗作者的时候也用这样的方法进行巩固练习。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！你们从开学到今天已经学习了一个月，凡是涉及了解课文的作者的时候，我们通常用读一读的方法进行，之后学习提取作者的关键信息，比如：作者的“雅号”、风格、代表作等。你们除了粗略地读一读，还要学着适当记一记。古诗词的学习也用这样的方法巩固练习嘎！提醒：认真书写，加强改错！
+
+### 本日推文
+
+[人民日报记者追忆十年前采访杨善洲：此心常绿一善洲](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247590194&idx=2&sn=a3b56a5ce81d1fb8afe4cc487c948be4&chksm=fa4a5a53cd3dd345fc6bdeba79f9860acfcf79c34dd409840654c7867ac8c6edc81a59e5d2fa&mpshare=1&scene=1&srcid=1010109YXkQNT1WGtQA8I9Ou&sharer_sharetime=1602320658349&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=74c1d550118a3d28ba69c577819a98bead0bb558f0c9901d3b17fecded4717beabb3e398b9bea012a148b397e6a5347468bd6c120f3577e4c6a6532e21db1ed923af2f9a14c56e29560fef480705654298fc213abe8f733d708abef8bf330791acb60f001678dbdfe5fd1d3208c00489583cd1bd828326b1a29a81acf4c32ad5&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AScoTDLd%2BVrGqBZ4Pt3ZY38%3D&pass_ticket=4UHWeFE2J%2BPSl%2FMW2WCth6asyCQxj0Khxz2vw6t8bKIJeCcEs31PJxs2XJLEyN7n&wx_header=0)
+
+[孩子和家长如何顺利度过“学段衔接”的焦虑期，老师您有什么建议？| 每周一问](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651551399&idx=1&sn=383382f283577c767f5d36d331fa01d3&chksm=80348f66b74306707d2c37949fd30401bb552abca2817bb800180cfb151321b225457554bb71&mpshare=1&scene=1&srcid=1010diROxpTiKEb6ANXdXD7D&sharer_sharetime=1602320709604&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=126745e5a1fffccf64c461b5ad8d089c2e9fba133fd7cf54ae708fd37e2af8915afd6e1886df4130f85956edea779307fea7578875ef4e85032f89ac3a2ad0ed6a40c56de4bb44bef2bdef082557e959f22ac2d5fbab0e9f36aa8f3ad4d7a678bcf0d33acb578c73c9c54c52e5f75be5238f3171364533fda017b79c22eccf46&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AVazcglu51F2XFEpMyOydDA%3D&pass_ticket=4UHWeFE2J%2BPSl%2FMW2WCth6asyCQxj0Khxz2vw6t8bKIJeCcEs31PJxs2XJLEyN7n&wx_header=0)
+
+### 每日一诵
+
+> 第2课 《走月亮》
+
+### 古诗一首
+
+> <font color=lightgreen>**长歌行**</font>    
+> <font color=lightblue>**汉乐府**</font>     
+>
+> 青青园中葵，朝露待日晞。
+>
+> 阳春布德泽，万物生光辉。
+>
+> 常恐秋节至，焜黄华叶衰。
+>
+> 百川东到海，何时复西归?
+>
+> 少壮不努力，老大徒伤悲！
+
