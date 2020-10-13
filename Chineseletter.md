@@ -1619,3 +1619,39 @@
 >
 > 少壮不努力，老大徒伤悲！
 
+## 2020年10月12日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！从今天起，“读古诗   讲故事”活动正式拉开序幕，目前已有孩子踊跃报名参与。这个星期的内容是1～5首古诗，以录音形式完成，时间3～5分钟，一首古诗录音一次，（注意录音开头和结尾）上交时间是本周五晚上10点前。另，请认真查看1号本的改错。感谢孩子们学习的路上一直有你们陪伴啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早我们对第二次习作进行了第二次修改指导，每一个同学都认真而努力，为你们点赞啊！记得不要把作业放在家里嘎！另外，今天“读古诗   讲故事”活动正式开始了，你们要通过自主学习，以“录音形式”完成讲故事作业。我们会在今后的活动中评选“故事大王”，希望你们积极报名，勇敢地锻炼自己。相信坚持做下去，你们会更优秀啊！
+
+### 本日推文
+
+[成功发射！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658622296&idx=2&sn=3c05ce87421d2cfc2091d75597970cc6&chksm=bd5f8f378a28062122b5fd0897bd3745b004f55d512f3a48564a903d9f23d3e143c07c98f215&mpshare=1&scene=1&srcid=1012YkM5u0utvA3JcWMcd1kQ&sharer_sharetime=1602493393341&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=9323edc76735a22f6aefeca15d25f7b1e78082b7d3893ffb3d42d19b3ca61b906839b63bd5df405017874319a0620f1ef3f223f88d5242aefba878f0ad8cf0cb363e73d8bed092079339198eb7638026a4331feada50f4f2008d37c0e4d9abd066d6fed6878e37cf4cb0e3dff703ea65c4b0098d241e172a56f59d30c88ad4bf&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AbOFzvHgIMdzJLYiAqUUZKE%3D&pass_ticket=9S676B84D3ZziFi1Qzf8mBBq0eMNykVp1kxra%2BiY%2F%2F9qiqdJBaV3%2BMliKhgpvRx%2B&wx_header=0)
+
+[关于小学生的作业，父母必须知道这4点](https://mp.weixin.qq.com/s?__biz=MzIzMjQzOTQ4MQ==&mid=2247503355&idx=3&sn=620a86ea61d9293c84951b65221e0ddd&chksm=e896662ddfe1ef3b01a544bbacacfd8541a6c6cb4256c6626b7e16df3095ce010745e6ad2d63&mpshare=1&scene=1&srcid=1012tHpeDzRj0GFTVkzV9XIu&sharer_sharetime=1602493412594&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c4f136c621a2e69e92e01d23fdaf9f7696b1aca1a25d625f1f85124ed0cd823654f56b6489855ed7ba0bd8ba73bc845e5148b22c172b0f1f83f5564b45cd3c252ec408283557099c1b2b490ff5f36b5b76e9dd4fb4de6366b34cfc4f64f00f05b8c0459ce2ee32c747bf6cb1c6940a9f8e5eea1a03d70e0f5&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AY%2BhSVmpYcJATVQXRxC6mVY%3D&pass_ticket=9S676B84D3ZziFi1Qzf8mBBq0eMNykVp1kxra%2BiY%2F%2F9qiqdJBaV3%2BMliKhgpvRx%2B&wx_header=0)
+
+### 每日一诵
+
+> 第3课 《现代诗二首》
+
+### 古诗一首
+
+> <font color=lightgreen>**敕勒歌**</font>    
+> <font color=lightblue>**北朝民歌**</font>     
+>
+> 
+>
+> 敕勒川，阴山下，
+>
+> 天似穹庐，
+>
+> 笼盖四野，
+>
+> 天苍苍，野茫茫，
+>
+> 风吹草低见牛羊。
