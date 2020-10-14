@@ -1655,3 +1655,39 @@
 > 天苍苍，野茫茫，
 >
 > 风吹草低见牛羊。
+
+## 2020年10月13日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天学习了10
+《爬山虎的脚》，从今天起，孩子们要学习写观察日记，方法是：1.细致观察。2.连续观察。具体内容是运用多种感官：看一看，听一听，闻一闻，摸一摸，想一想。观察日记的形式：1.图文结合。2.做表格。（根据观察对象二选一）建议：种豆芽、养蚕或养小金鱼。从今天起思考完成《巩固案》中的第四题，（完成在背面）因为需要连续观察作记录，所以这道题目在期末复习时上交。语文学习与生活紧密联系，学习语文，就是在生活中学习。细致观察，连续观察，为习作储备素材，真正地学以致用。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天课堂上学习《爬山虎的脚》，重点学习了怎样写观察日记，从今天起你们开始思考，准备观察什么，选取什么样的观察形式，思考后就做计划，学习叶圣陶老先生那样细致而连续地观察。观察生活中的一景一物，一人一事，其实就是在学习语文。语文学习生活化是很重要的内容和形式。只有爱观察，会观察，才能激起你们思维的火花，才能为你们的习作堆砌砖石瓦料，你们的习作才会有活水源。加油吧！
+
+### 本日推文
+
+[我们教给孩子的究竟是幸福课，还是成功学？](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651551351&idx=1&sn=e4e691ea7e771a1ffebc2dabcdc14168&chksm=80348fb6b74306a0acac810e2d03585381326891492fd27235f71dded22ce931bce58085a716&mpshare=1&scene=1&srcid=1013wbaOWeYjVvUkIINdQJ0m&sharer_sharetime=1602634849428&sharer_shareid=b1907b4b630f2079173b91632a432ec0&key=6d84c5fc3ea908faf67fef521db66ef55011bcaa7f9b82c0eb0f661166e0d30acab58d43377582819ae7c8de5dfda5d4dd2f2d3746cd603b0fa61d8525b2324df8beb946c7913efe12e21f3ad52e6b0070a8a5afa3313d1ccd2507f85fdb5b752c0ac5ee132a0cbd3b1e5bee24fdd45363d230dd3e96303644d71bb84809d21e&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=ASVgvsICPAFre9iK3smovq4%3D&pass_ticket=cAwQ8T1%2FcbcuUH4GVVXN%2FWHNtWtFk4h5u9OlWeX19NUq%2BX2cFn5Lp5auR23KPRJ5&wx_header=0)
+
+[孩子最喜欢父母的行为中，“信任”排在首位！你相信自己的孩子吗？](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651551429&idx=1&sn=3622559a1cc289484cb6dd1bbe95902c&chksm=80348f04b74306126a42ac43c73537bc2bb3864b57b2ed24bd668631065e3a8655ba9701fd0a&mpshare=1&scene=1&srcid=1011ohoKD7uMvJLpMQX1WZUs&sharer_sharetime=1602634857239&sharer_shareid=b1907b4b630f2079173b91632a432ec0&key=4dcdc0acef2a28ea926976bcafd87ebb6d7eaa312c846f3a903a68f0b7675bb26106e6764ffa287700ee5e06542d17fcde2332db5efc2ec62b17f703987567e0fe1cfa393101ab7bc35aa039b0eb6e1eeeae857a7d3ad0c38f776ed1175d42e33686fc693572849d0a0e120af145cd4a928d6b606ddb1cf31e8724531fc37ffd&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=62090538&lang=zh_CN&exportkey=AeRlQcXQRgY1Qe7UdnkQgiY%3D&pass_ticket=cAwQ8T1%2FcbcuUH4GVVXN%2FWHNtWtFk4h5u9OlWeX19NUq%2BX2cFn5Lp5auR23KPRJ5&wx_header=0)
+
+### 每日一诵
+
+> 第4课 《繁星》
+
+### 古诗一首
+
+> <font color=lightgreen>**咏**</font>    
+> <font color=lightblue>**唐	骆宾王**</font>     
+>
+> 
+>
+> 鹅，鹅，鹅，
+>
+> 曲项向天歌。
+>
+> 白毛浮绿水，
+>
+> 红掌拨清波。
