@@ -1660,8 +1660,7 @@
 
 ### 家长寄语
 
-亲爱的大朋友们：下午好！今天学习了10
-《爬山虎的脚》，从今天起，孩子们要学习写观察日记，方法是：1.细致观察。2.连续观察。具体内容是运用多种感官：看一看，听一听，闻一闻，摸一摸，想一想。观察日记的形式：1.图文结合。2.做表格。（根据观察对象二选一）建议：种豆芽、养蚕或养小金鱼。从今天起思考完成《巩固案》中的第四题，（完成在背面）因为需要连续观察作记录，所以这道题目在期末复习时上交。语文学习与生活紧密联系，学习语文，就是在生活中学习。细致观察，连续观察，为习作储备素材，真正地学以致用。加油！
+亲爱的大朋友们：下午好！今天学习了10《爬山虎的脚》，从今天起，孩子们要学习写观察日记，方法是：1.细致观察。2.连续观察。具体内容是运用多种感官：看一看，听一听，闻一闻，摸一摸，想一想。观察日记的形式：1.图文结合。2.做表格。（根据观察对象二选一）建议：种豆芽、养蚕或养小金鱼。从今天起思考完成《巩固案》中的第四题，（完成在背面）因为需要连续观察作记录，所以这道题目在期末复习时上交。语文学习与生活紧密联系，学习语文，就是在生活中学习。细致观察，连续观察，为习作储备素材，真正地学以致用。加油！
 
 ### 学生寄语
 
@@ -1679,7 +1678,7 @@
 
 ### 古诗一首
 
-> <font color=lightgreen>**咏**</font>    
+> <font color=lightgreen>**咏鹅**</font>    
 > <font color=lightblue>**唐	骆宾王**</font>     
 >
 > 
@@ -1691,3 +1690,215 @@
 > 白毛浮绿水，
 >
 > 红掌拨清波。
+
+
+
+## 2020年10月15日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早班上有10个孩子参加运动会比赛项目，我利用这个时间段和剩余的孩子们交流了自主管理——抄作业和改错的方法。我现场作了一个统计，结果是：在教室的38人中只有2人没有因为作业问题被陈老师私信提醒。作业问题是：忘带作业、忘交作业、忘记改错。我对孩子们说：“你们来帮陈老师支支招，怎样治愈我心里这块总是治愈不好的伤疤？”孩子们纷纷说：“在课堂上批评，或把名字写在黑板上，或把名字发在群里……”我对他们说：“这些方法陈老师从来没有用过，但也不想用。你们还有其它办法吗？”紧接着，我对改错作业再次作了强调，要学会用“回头看”的办法改错，具体方法就是：在完成当天作业之前要翻到头一天的作业看一看有需要改错的作业吗？当天的改错作业必须当天完成。第二天找陈老师面批改错的只能是“疑难错题”。因为孩子们在学校学习的节奏很快，真的是“没有时间”。请从今天起，坚持每天查看作业，并督促完成改错作业嘎！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早我们聊天的内容要牢牢记在心上嘎！改错作业是每天的常规作业，必须做到当天作业错题当天完成改错。改错的时候一定要先想：错在哪里？正确的答案是什么？又怎样改？经过这样一个思考过程，相信你们的改错大多数情况下是一次“过关”。偶有“疑难错题”也是正常的。不会改怎么办？一定要记得第二天找陈老师解决。从今天起，快快行动起来，认认真真完成改错作业嘎！
+
+### 本日推文
+
+[一块橡皮，就能看出孩子上课不认真？老师建议在这里](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651551710&idx=2&sn=0bdd0162216625c68d8bcebacbc8f6ae&chksm=80348e1fb7430709c0890c4d2fa9bc9dcb3f5cbe2a87b83a2865e6ccac0017dfbee0b71c0c34&mpshare=1&scene=1&srcid=1015ke3bdpAnZ3KDDSWozVaQ&sharer_sharetime=1602752495712&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06dafefc1b0fea25875934699959f2ae728e4610ff5ce3bd89c7657db4e44aebc51e6e9b57af68c08cc1ade7c1ec5dc0167eb83a3578fc8e5556f14ef944916fef60aef7905d50417bc643273854dce59141005dae8c9310f8d51b48f44c6aaf9ae8408a8d3f93ca32da7a034c82c4b5af92575240168333a7&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXKvQUMmUv%2FhOk727inuvT4%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[作业神器，你的孩子入坑了吗？](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247493522&idx=1&sn=833a4239a98da523024d85fb3e4cce1c&chksm=f94325cfce34acd9f87c8872eb73aa7f2ec05423eec9c66f022b265cf9719a111e7d44a4338e&mpshare=1&scene=1&srcid=1015S04TPfsEZmjklQeMy2sU&sharer_sharetime=1602752522247&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=74c1d550118a3d28035a760aca5a192fd1b4b0f1fac55c3166b3196c2064249b7343b52160eaea0b2b433399b78e3e2f59918f8ec19a21381bbd683d86bff2ea3d65881848682f5a65ba328e79722a37ed7257cf8c1773d6207a4b640de9f88d6885fe00835997476e45b90bed7dd84ac7b0f76ea2136af0b96de2acbb6f429e&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXDnYtDqXhEbLpFtWu4RAlY%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第6课 《夜间飞行的秘密》
+
+### 古诗一首
+
+> <font color=lightgreen>**咏柳**</font>    
+> <font color=lightblue>**唐	贺知章**</font>     
+>
+> 
+>
+> 碧玉妆成一树高，
+>
+> 万条垂下绿丝绦。
+>
+> 不知细叶谁裁出，
+>
+> 二月春风似剪刀。 
+
+## 2020年10月16日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！抱歉现在才发留言。今早对“书法练习一”进行了评价指导。“书法练习一”的学习重点是：注意行款整齐，把字写在格子的中心，注意字间距均匀。标点符号也算字，也要注意标点符号的占位。之前教给孩子们的“压线”写也是一种写法。这两种方法平时都可以交替练习。只要孩子们把“书写要求”和“书写姿势”牢记于心，就一定能把字写好。书写认真是一种良好的书写习惯，更是一种书写态度。“提笔就是练字时”，相信在你们的积极配合下，孩子们一定能写出一手漂亮的字。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！这个周末的“书法练习二”作业要按照今早的评价方法再作改进练习啊！能写一手漂亮的字是语文基本功，也是语文学科的核心素养。只要有正确的方法，端正书写的态度，相信你们都能成为“小小书法家”。另，记得每周一次的《阅读记录卡》作业要在周一早上交嘎！现在很多同学把阅读课外书当作每天的家庭作业，已经养成了良好的阅读习惯。他们有计划，有目标地去汲取阅读的精神养料，从课外书中看到另一个更广阔的精彩的世界。加油吧！阅读的世界里有诗和远方正在等待着你们啊！
+
+### 本日推文
+
+[青岛通报，源头查清！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658623512&idx=1&sn=b8db5c0c2e8ac24048b005f0a05332c7&chksm=bd5fb4778a283d61536970111fcdace431e403c8c568b2b7141bf9f85aaf8bc35a23ac5df878&mpshare=1&scene=1&srcid=1016ylG4VSq5AkFjIsPwerBj&sharer_sharetime=1602850051140&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c0579f737088da2bf17da2abb97b370866b8a6c613e6bcf47778f1236d784f5d99cabd817c2c5cba55218076f64dc9182f328a2968ab3b884787c57f5a39b03bc9a0ccf85bad238c75920c3e3dbdcdde713729c193ba0d6b2e68cacf12bdaf0c47d5049bd4ae88ea66fdac7c1ba2152036ad27a671825942e&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQW7qAxijOpU0Uc4P2XMZnQ%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[这3张家庭教育表，值得所有父母收藏！](https://mp.weixin.qq.com/s?__biz=MzA4MTQ3MjczMA==&mid=2655367641&idx=1&sn=d40faea48d7e00bdcd251b64735640bd&chksm=84256c6cb352e57aac0955bcf1dc7b74d8df4660f5c12cbad1090c08a24344f093d5b106a2ee&mpshare=1&scene=1&srcid=1015N9yjOvOoNnUhXHeA8RTW&sharer_sharetime=1602850068759&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28ea360081e9fd84d82ebb3d3d54be6f165e8d5b533abd3a67ae3c8efabf9a4bd55ecaa3f1312e5412a8759ff11cee3eb388f7b1a4f09e848620adfda208d9333a37fe608de14a57a1c9b8bea4d275ca3f98a4511bde18c98ae9ec2809bf89cfe4a28e8f8ef3793007a56955b39d01aa5705cf754a8820cc2738&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXE5wLv%2FRl%2BIqQAOi2u7W08%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第7课 《呼风唤雨的世纪》
+
+### 古诗一首
+
+> <font color=lightgreen>**回乡偶书**</font>    
+> <font color=lightblue>**唐	贺知章**</font>     
+>
+> 
+>
+> 少小离家老大回，
+>
+> 乡音无改鬓毛衰。
+>
+> 儿童相见不相识，
+>
+> 笑问客从何处来。 
+
+## 2020年10月19日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早对阅读课外书又作了强调，坚持，用心，一份付出就会有一份收获。另，第一节课我们进行第二单元词语竞赛，还是坚持“无人监考”制度。但，今天有一个激励。凡是考试时能够做到“自律”的同学今天就可以免一项作业。等下课铃声响了我走进教室进行统计的时候，全班孩子都做到了“自律”，所以今天只有一项作业。你们一定要好好表扬嘎！好习惯从细节做起，加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！你们今早的表现很棒哦！其实做个“自律”的孩子并不难，难的是挑战自己。把自己这个“敌人”打败了，也就成功了。学习是件愉快的事，你们这样想，也就会从内心有这样的感受。不信，你们试试嘎！另，记得今天“回头看”——改错。今天下发了2号本和练习三，一定查看并坚持改错嘎！
+
+### 本日推文
+
+[云南，大步向前！](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247592771&idx=1&sn=14afeb97345ed071711fe1c20d9da39d&chksm=fa4a5022cd3dd9340c201063a5dc002f80255db15d506537c070019ed71cf65c9aa716c5d299&mpshare=1&scene=1&srcid=1019T9qnpe0sJVVVAckWg29m&sharer_sharetime=1603098157621&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28ea55d08679e9bb5d49785895181a87823e4365371ccda7761816c41a67e63c137257258ae7fb81f81757386e7ecb643e59d24c3face2ae80b45c86a7d8d4bb11c58749297f261f24ab9caf3d31ab94a77a549270d0b5afd735ad4c6f0ad321b33c3b4e693cfa90b7ca1b054b84f78476c217bf8b47ce765d80&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATSo6ZeIgjxjQ%2B%2FCcALMc5w%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[多个疫情结论来了！钟南山发声…](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658624234&idx=1&sn=e32d7a523faabe392986ef2d168f1fdb&chksm=bd5fb6858a283f93e553eca510ad53c6a3db67d741809e7ae380b66c3d13f0aa81b1a7aa13ac&mpshare=1&scene=1&srcid=1019Ho5rlT20Y4w0tJtKQjX8&sharer_sharetime=1603098199530&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d768bbe212c999a4466c9e977e270b2e104e7ca56a5d4051a57a05c51555ab94a98e34c8a67230bd11ed6e330044ad3dbffe8f47a24f780d6531346624deb49f05469953de8b6b468867e68ea0cc17283c0d8272d346fdf0acfab6ea8430282e57f1c7d30358b9fca62be3b5cfa130d36b15e81fce61f6103d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATEZHH7pSNldLHf9Enypke8%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第8课 《蝴蝶的家》
+
+### 古诗一首
+
+> <font color=lightgreen>**凉州词**</font>    
+> <font color=lightblue>**唐	王之涣**</font>     
+>
+> 
+>
+> 黄河远上白云间，
+>
+> 一片孤城万仞山。
+>
+> 羌笛何须怨杨柳，
+>
+> 春风不度玉门关。
+
+## 2020年10月20日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早和孩子们交流了“回头看”——改错问题，我给他们布置了一个游戏，从今天开始玩起来。游戏名称是“和错别字交好朋友”，玩法是：1.把写过的错别字集中起来管理好。2.多和错别字“说说话”。（多见面，弄清楚错在哪里。）3.多和错别字交“好朋友”。（多见面，多“拉手”，写正确。）暑假里安排“小小书法家活动”，其目的就是要求孩子们练习书写一类生字。每一课都有同学的“范本”，要求对照范本作自检自查，并及时改错。到目前为止，我们从孩子们的1号本上看到了取得的一点成绩，同时也反映出了一些问题。问题1.您督促紧的，孩子完成的质量高一点。2.您要求严格些的，孩子完成的质量最高。3.您只是嘴上说要求，不查看作业的，孩子完成的质量就差一些。4.您从来不要求的，孩子完成的质量最差。孩子书写质量的关键除了掌握书写方法及要求，更重要的是书写态度。只有端正了态度，书写质量才能提升。所以，孩子的学习质量是由您的态度决定的。班上确实有非常自律的孩子，但只是个别。要靠孩子都自律，只有培养起好的学习习惯。小学六年是习惯养成的阶段，我们唯一要做的一件事就是培养孩子们的良好的学习习惯。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早一上课就特别表扬了积极找陈老师改错的同学和进步大的同学。接着和你们交流了“管理错别字”。我们最大的敌人是我们自己，我们要努力打败自己。书写质量是提升成绩的关键。只有认真书写，才能克服“一堆错别字”。“先入为主”这个道理你们要明白。一开始没有先观察就写的，绝大部分会写错。一旦写错了就特别难改过来。一旦写错了的，你不及时改正，你的错字就会“堆成山”。这一点都不夸张。因为我们的识字高峰由地段逐步向高段递减，认识的字越多，错字就会越多。所以，加强改错是最紧要的一件大事。记得把1号本上的错认真改一改嘎！加油啊！
+
+### 本日推文
+
+[中方1名士兵在中印边境地区迷路走失，西部战区回应](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658624467&idx=1&sn=ec597a91d11b1ef7319d93e24ffc64fe&chksm=bd5fb7bc8a283eaaaa1ba63ffc3e2911e9124f22ed7aceb55a2401974f47884af9b875ab6612&mpshare=1&scene=1&srcid=1020Oz83Nc26NR7lpmoq3v55&sharer_sharetime=1603184627237&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca065a0d7fcd91d445725903410cc729ef5698f807e67956980b38039e10007f4d220a9a164f29b00ab61a30fffe21094996e804406b0bbea37cd6a891a224b77d27e6a2715db87e98c88b06fbbb7309585a5ffd0fb2d3ec59674e3baac8068237d367b67a7c36e19cd5af05a51743c479e49d9d5c5804cb5704&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AdnMuX%2BT2TviUb0R51%2F2sJc%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[云南中考体育与语数外分数齐平，教育部点名表扬！将全国推广云南经验 ！](https://mp.weixin.qq.com/s?__biz=MzA3NzA5NDMxNw==&mid=2652470864&idx=1&sn=dc45a2fd12146baf258ec57965e9e3bb&chksm=84ba9292b3cd1b847c36814cb8f458acaccf20af82cc25bfb94b1be049cfb59578f8b0c6ec81&mpshare=1&scene=1&srcid=1020stb2PJRY5qQ8gfWzdP0J&sharer_sharetime=1603184647429&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca065ff57b0d6373a2b76a3fe45e4331657fcee63c177e766ca47450d266599a53ba37a76b34349a87dcc0551c4c5ef21fe75185c1c170bfa3401a724eb2de80696ca40a3f7fad3a0b49a7fd23bc7d11aee7f03b9c0759658948e35ca80d7e73f0ad84d872c67ee633fe76f2bfcab525adfc1a116689f29d56c5&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATf2zQS6UQ%2FDg%2Fb66adYtoI%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第9课 《古诗三首》
+
+### 古诗一首
+
+> <font color=lightgreen>**登鹳雀楼**</font>    
+> <font color=lightblue>**唐	王之涣**</font>     
+>
+> 
+>
+> 白日依山尽，
+>
+> 黄河入海流。
+>
+> 欲穷千里目，
+>
+> 更上一层楼。
+
+## 2020年10月21日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！近段时间反复强调作业改错问题，今早通过《作业记录本》上的反馈，看到了你们的重视，同时也看到了你们的行动。谢谢谢谢！家校配合一定能够帮助孩子们养成改错的好习惯，再接再厉，努力坚持啊！另，第四单元的学习快要结束了，也就意味着我们的学习任务完成了一半，陈老师准备对第一～四单元内容作一次测试，请督促孩子们有计划地复习。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！昨天陈老师反复强调改错问题，你们中的大部分同学进步很大。今早第一节课就表扬了改错最认真的两个孩子，他们是你们学习的榜样啊！会学习榜样，你们就进步了。转眼我们的学习任务就快过半了，你们要有计划地复习，做好迎接检测的准备啊！加油吧！
+
+### 本日推文
+
+[小学低年级段学习习惯误区，千万别踩！](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247493699&idx=3&sn=60336c091fb123ece9c13e16bf7068ae&chksm=f9432a1ece34a308f61e9e675ae6e76ed9df20ab08219bc75d8bbe882e5dd1b5bfb9071d197b&mpshare=1&scene=1&srcid=1021LACriLjMZybH2nW3GF4O&sharer_sharetime=1603271021880&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d7de67583a1dafe35d89301494d7882d55ad37d3e05cd2895932746b51e662d58570f84ef53292f0b65d76df1799a5917e365597a9fe043a4726a0b2abf5f2704857ab1ec1f513c454fe236c2aed6fc2b67246e915236f46f85531dd5ffc8e5e79100c9104b97b7d24b89fb4e9ff4fdbabb1fa364437b55b77&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATeByAHOkXIoRMtgCdxnUl0%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[卫健委紧急提示，这类食品慎吃！老师家长要引以为戒 | 提醒](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651552213&idx=2&sn=a8b26ee6d4ce377126b776d4ebb015ca&chksm=80348014b74309020634f9df51eccfba2b29a4562a66b1491158de0aac7296438af5d9aa60e0&mpshare=1&scene=1&srcid=1021mdosZNSzEsbPFQFfmtyz&sharer_sharetime=1603271033592&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=126745e5a1fffccf30447033e4cb6137e3fe666c270188c5227b24bb4ada57c2374ed11809ef07af24ad79a42d22b15471ee7943a0854939db54c4c2d8bff616b20f3b85d5c899d1378a0bbac73b052ddc8b6fffbddf70affb1772a00d25dd6a27b8008361d596357dae15d13e9266f147f90cec97809fed04da0c913ca8f963&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYkD8uTW%2BLuS3hINDx4hIE0%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第10课 《爬山虎的脚》
+
+### 古诗一首
+
+> <font color=lightgreen>**春晓**</font>    
+> <font color=lightblue>**唐	孟浩然**</font>     
+>
+> 
+>
+> 春眠不觉晓，
+>
+> 处处闻啼鸟。
+>
+> 夜来风雨声，
+>
+> 花落知多少。
+
+## 2020年10月22日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！这个星期因为活动频繁，我们没有完成计划任务，下周尽力改进，见谅啊！今天布置了14课和17课的预习作业，其中用1号本书写一类生字和查字典内容是暑假已经完成了的，只需自检自查再改错。孩子们的改错有些进步了，感谢你们的引导与陪伴。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天布置了预习作业，其中1号本和查字典内容需要你们认真检查，及时改错，逐渐养成改“前错”的好习惯。另，每天作业展示活动进行了一个阶段，现转入第二阶段。让了我们每个孩子都能够积极参与到活动中，陈老师会私信你们的爸爸妈妈，告知任务要求。同时，也希望你们认真对待。比如：作业抄写完整、正确，书写认真 。古诗抄写后做好自检自查，再及时改错。加油啊！
+
+### 本日推文
+
+[我们也插播一条：东风-17！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658624995&idx=1&sn=8dce7a94a3b005979ae0c3524af1fdf4&chksm=bd5fb18c8a28389a312d7ca471cb103baf654d8e3a480e6c82c8c7bd669c666562be33254cf8&mpshare=1&scene=1&srcid=1022ADa0nngIz8rSIPuINkcR&sharer_sharetime=1603357437795&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=74c1d550118a3d28b3db9655274bff26d4a14b0248ec64f29a54cad4b0f1779fe4ea625cd175ad1f73922aa6f9a6371871f46fca66a8307e54e46e0431cc1beaead1884b054d8ce58cbfc26a285e3a59a88841655c92ccf1ad010d9c8cc2be8894fdddf1494e94cb6ead13e4a476f7409f9abf8ad935ea542445d9e38da8545b&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZ7J3gQTyyweiJEHwGzSqcE%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+[中共中央、国务院、中央军委颁发“中国人民志愿军抗美援朝出国作战70周年”纪念章](https://mp.weixin.qq.com/s?__biz=MzAxMjAyODcwMw==&mid=2650898488&idx=1&sn=13cf7b4c99fd5f2426d33012e5607de4&chksm=804d3e48b73ab75e93573a91bcb2a4833db0e384b38f0f0eb05d69e462a3910b42dd87eb2775&mpshare=1&scene=1&srcid=1022BK3C8zV37QkcB0f4mTcC&sharer_sharetime=1603357919149&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06aac95faf2a35b0bdc7d544a8f7e6788dbb179850f2dc28186b9fbd5827dcec4c4a522b5cd426bae8334457758065d1bfafe9ddd9167732463cceb1653c53250efd0fc12808c36402c11ef7ae8535c3968b799620038a4d7520cc977494eb971e79a20953ac86cccc14ce58e3e9c66ba89cc91e9f41bee490&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZAkxji%2Fc45zj%2B56NmY%2Bvko%3D&pass_ticket=tMt5B1Vvci8lJLhn7QVA08LLxn38pEQ1cxkzEyi5TAwZJ8fQ%2F6RPhDrSIYGf2Nj8&wx_header=0)
+
+### 每日一诵
+
+> 第12课 《盘古开天地》
+
+### 古诗一首
+
+> <font color=lightgreen>**凉州词**</font>    
+> <font color=lightblue>**唐	王翰**</font>     
+>
+> 
+>
+> 葡萄美酒夜光杯 ，
+>
+> 欲饮琵琶马上催。
+>
+> 醉卧沙场君莫笑，
+>
+> 古来征战几人回
