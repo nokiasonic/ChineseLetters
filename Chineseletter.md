@@ -1901,4 +1901,74 @@
 >
 > 醉卧沙场君莫笑，
 >
-> 古来征战几人回
+> 古来征战几人回。
+
+## 2020年10月23日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！今天有事被耽搁了，抱歉啊！从你们的留言反馈中，我看到很多孩子们已经开始作复习计划，也有孩子开始了有计划地复习。复习内容及方法是：1.一类字词：读、写正确，并理解词意。2.二类字词：读、写正确。3.多音字：查字典整理字音，并能“据义定音”。4.同音字：收集整理，归类识记。5.形近字：收集整理，辨析识记。6.课文：读得正确、流利、有感情。6.指定背诵内容：读熟，背正确。7.园地：读熟、记忆。8.看作业，“找问题”。9.笔记：读、想、记。10.错字整理：读、写正确，强化记忆。有疑问欢迎随时“微我”嘎！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！陈老师知道好多小朋友开始重视语文学习的“日积月累”了，说明你们知道学习语文的方法了，真为你们高兴啊！语文学习就是一点点，一天天积累起来的。做好每天的“积累”，就是在为期末复习做准备。你们急需要做的一件事就是：收集整理错字音。把它们整理好，每天认真复习，相信错字音会离你们越来越远。试试看啊！另，认真完成作业也是一种“积累”。在“认真作业”的基础加快速度也就提高了学习效率。只有平时有扎实的训练，考试才能得心应手。孩子们，加油吧！
+
+### 本日推文
+
+[现场实录）习近平：在纪念中国人民志愿军抗美援朝出国作战70周年大会上的讲话](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651552348&idx=1&sn=6940d2ebae403a2cb028718ded4eb51b&chksm=8034839db7430a8b446a5f5f6da55224a491d355f2299a034e09dc5e6a18af812a55bc08a09c&mpshare=1&scene=1&srcid=10235BYUMIGjz426UMopOTTs&sharer_sharetime=1603457058055&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a022c3ed02eaca06555e88e0380e0c428e3fd5c7815a4380854979147b014db48d29ab8ba8dfd3aaadc8acf37a20992e79fdaccb8cb482f2c3df05ec5edab652372f86eeb1e0d329ea37e0b171d35478d77bb7eae713bb745d73f2b7a446661c12cb7d8d4dc211a8b2b14ad0d09362a1a038e18f3dced2e354904973c16ca6da&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AWPY4f2kXNRpnqdtkm7DkLM%3D&pass_ticket=oYwkBZw64ZBSACqaLoSp9cu7lW6Wy0yANm8QqpluyyB6ZTPkM%2FTWWk%2F8AlIuOajA&wx_header=0)
+
+[抗美援朝中的云南印记](https://mp.weixin.qq.com/s?__biz=MzAxMjAyODcwMw==&mid=2650898615&idx=1&sn=43e17db3cc0a84ea18c97bf53d67e0f9&chksm=804d3ec7b73ab7d18825ad6130138275c9237fcfb26f5c4787f89224bff8495e1499ad4d24f0&mpshare=1&scene=1&srcid=1023wqvmwBhctUW6gMII327N&sharer_sharetime=1603457072571&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3cb4c47106bb3a2c3e4c8e0cf37ddfc6e1786b7e3d10c4dd92ce835cf935b9296d3c99a25f6c333dd0ce7f36ac5ac10f2f4313e0d17583dace28d4c04a6d61ab2d86ff56b265d636f3ac98be2e30b60099615fa1d89814e6e82bdece01627380ac335577dc3ee9a3ed9f59f098ae10f4fda1f8b56ce218527b&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZMEfvT0ZEb8K0K2Bjf2zAU%3D&pass_ticket=oYwkBZw64ZBSACqaLoSp9cu7lW6Wy0yANm8QqpluyyB6ZTPkM%2FTWWk%2F8AlIuOajA&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**出塞**</font>    
+> <font color=lightblue>**唐	王昌龄**</font>     
+>
+> 
+>
+> 秦时明月汉时关，
+>
+> 万里长征人未还。
+>
+> 但使龙城飞将在，
+>
+> 不教胡马度阴山
+
+## 2020年10月26日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！今天带领孩子们上了一节公开课，一直在反思总结，抱歉现在才发留言。因为孩子们表现很棒，今天作业就减免了一项。另，今天发下的《词语竞赛卷》大部分孩子的书写质量有了提升，你们要好好表扬嘎！本次竞赛内容难度大，需要孩子们认真改错。完成好的同学都有一个共同特点：熟读课文，用心识记字词，及时改错。麻烦您查看了解情况！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！首先表扬你们今天课堂上的表现很棒哦！学习语文就是要面对困难，像今天课文里描述的那样：勇于挑战自我，一定能够勇攀高峰。今天陈老师的教授课题的选课就是具有挑战性的，没有完成好的方面会促进陈老师不断反思总结。第一次尝试，就一定会带给陈老师更意外的收获，这就是进步。陈老师和你们一样也是要不断学习，不断提高的。加油啊！我们一同学习，一同进步嘎！
+
+### 本日推文
+
+[云南新增境外航空输入无症状感染者1例，为马尔代夫输入](https://mp.weixin.qq.com/s?__biz=MzA3NzA5NDMxNw==&mid=2652472202&idx=5&sn=3dfdac21386245d982c7d5e9e9eb396e&chksm=84ba6f48b3cde65ec34fdcb26cd8369af2b9c1d5c178381dfa259a49986d1e79fa3570c280fd&mpshare=1&scene=1&srcid=1026dXDkfpitUIiD1xKgbVAC&sharer_sharetime=1603706350942&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=126745e5a1fffccf3614c58716be6f5905916b03094cce22ffa2b7a6063d0513ed55165ea28befe610a5c8e5e6cb3106b38ab5b93918e2f7cfece232c02de2633045084c91d86644e4897b3589c361808fe96a1b3af785e4b84938fd61efdfc74f056cbc733920562141b07008db7bde7d24c96a945ef4a9c3b8069f7dec3868&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXQZCh7zp5bsB1vVchZrrU0%3D&pass_ticket=oYwkBZw64ZBSACqaLoSp9cu7lW6Wy0yANm8QqpluyyB6ZTPkM%2FTWWk%2F8AlIuOajA&wx_header=0)
+
+[中方宣布制裁！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658626329&idx=1&sn=8d893de3aab4547481d6be8420dae718&chksm=bd5fbf768a28366041a529a1dcd2163876320b036d60dc19aab718ef57d66af1fa032f1a7fc0&mpshare=1&scene=1&srcid=1026hjtyPvJ9jzEfNPMSdGAC&sharer_sharetime=1603706430985&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28eae7b6ec4cd6a8022c1a17463f81375d239e9d310959885640bcfb47815ee02f7f4a8a67e83e40652527939d7d00674c605d2e03c086b05e0c5192a34d220a2efe8a11df27f8594377ce35a4e89e4ac43ef6852c87c1a30bfb41f0b26e9e3c06178023250ee83cf5945a35ca986a639b357a939096f950b1a1&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXuZ1Boks5goFrO2FUmyKd8%3D&pass_ticket=oYwkBZw64ZBSACqaLoSp9cu7lW6Wy0yANm8QqpluyyB6ZTPkM%2FTWWk%2F8AlIuOajA&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**芙蓉楼送辛渐**</font>    
+> <font color=lightblue>**唐	王昌龄**</font>     
+>
+> 
+>
+> 寒雨连江夜入吴，  
+>
+> 平明送客楚山孤。  
+>
+> 洛阳亲友如相问，
+>
+> 一片冰心在玉壶。
