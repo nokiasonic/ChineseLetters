@@ -1972,3 +1972,73 @@
 > 洛阳亲友如相问，
 >
 > 一片冰心在玉壶。
+
+## 2020年10月27日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！近段时间孩子们活动多，很辛苦！你们一定多陪伴啊！关于改错，你们要引导孩子按照“改错方法及步骤”认真落实，多提醒，多督促，多检查。不清楚的第一时间沟通交流嘎。今天作业需要写“颁奖词”，你们要引导孩子上网查资料，自主学习方法，鼓励孩子自主完成。另，请提醒孩子们明早带“词语竞赛卷（二）”嘎！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！学校活动多，你们很辛苦，陈老师是知道的，也能够体谅你们学习状态欠佳。其实，你们要记住：无论你们周围有多少干扰因素，认真学习一定是最重要的事。再者你们无论参加什么活动，只要尽力完成就是最棒的！人处在复杂环境中最锻炼自己。加强锻炼，学会“闹中取静”，你们会越来越强大啊！
+
+### 本日推文
+
+[“认真检查啊”光喊是没用的！教会孩子检查试卷，至少还能加10分！](https://mp.weixin.qq.com/s?__biz=MzI5MzU5NjcyMQ==&mid=2247523928&idx=1&sn=f45489f2933f7765ce89581772eaf861&chksm=ec6d6506db1aec1036d0834b4f8090ccb71a3d58896ddd6e4b4dfc813f70acf9b92e9f882d28&mpshare=1&scene=1&srcid=1026pSQNkGZ69bV7mWLc0IdV&sharer_sharetime=1603791640622&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28ea20cb101477479564c55ca1cfea070209d0edf59b7de9cc8be17c4a3ae6eb22177e5c71d9ec1b0643e43db89e2a912e468238dd8a1e5fa104d5bb60cc90486ed4b391d88098ce0c30111e15639a6105f3c22f92ff13230065a0e82ecd747e207537ad268c2dcf126944c4cf9aed3dd3d548a704e758945981&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AbxmGuPaQhiuFJY5Kk8G0Gk%3D&pass_ticket=8L2%2FrCy1NfMTNa7n63YaZvEXShQZZI%2BqfXXIGOWJyiicUMG87aYGyuz6aCWQ4mcR&wx_header=0)
+
+[心理专家陈默：中国孩子已经变了，老师和家长却还没跟上](https://mp.weixin.qq.com/s?__biz=MzA5NDE2MDY3NA==&mid=2649962977&idx=1&sn=a006b7697530875a77d2b7cc8b206776&chksm=88554bacbf22c2ba6ccc9686acc3f20e1d514e6877f46fed279867df44591fc29f39a85b2892&mpshare=1&scene=1&srcid=1026IQlDgDHg6kPYsiZrarKC&sharer_sharetime=1603791653547&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4dcdc0acef2a28ea2c5ef9f37d67e5a427cc33d5d78b552f87954f602b62b9fd93463910ff0b97ca47a481635075fd562a16f11f0f6f064ce6db9a931ffeea7ebad58df1bb48bc148ce653bdde6c280ff2a5232014d31e1cf149d8c300d7ba46114eb98897199e83a23b6969fdea26af14c49c0591fdb5029943b7b9dd370e10&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ASf7p%2BlfUZoTeazYn6ULccM%3D&pass_ticket=8L2%2FrCy1NfMTNa7n63YaZvEXShQZZI%2BqfXXIGOWJyiicUMG87aYGyuz6aCWQ4mcR&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**鹿柴**</font>    
+> <font color=lightblue>**唐	王维**</font>     
+>
+> 
+>
+> 空山不见人，
+>
+> 但闻人语响。
+>
+> 返景入深林，
+>
+> 复照青苔上。
+
+## 2020年10月28日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！今早孩子们参加了3节公开课的展示，表现很棒啊！你们一定要好好表扬嘎！我的第四节课因有孩子参加打扫卫生等事，所以就没有上新的内容了。我利用最后20分钟和孩子们交流了“抄作业”和“自我管理”两个话题。我们三年级用了一年的时间训练了作业记录采用“听记”的方法，这学期开始，我们进入第二阶段的训练。每天选派一个优秀孩子把作业写在黑板上，再由自己完成抄作业 。孩子们每天在做作业前，首先查看的是《作业记录本》。只有作业抄正确了，才能保障作业质量。要求：1.抄完整（包括日期等）2.写认真。抄完后同桌互查，最后签名确认。这样一个环节不仅仅是完成抄作业任务，更重要的是培养孩子做事有条理，有责任。也有特殊几个孩子被陈老师专门请了“小老师”帮助完成这个任务。今早我们还评选出了第一个在“自我管理”方面做得优秀的孩子，陈老师希望后续还将评出第二个、第三个……加油吧！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！今早连上3节专科的公开课，你们表现很棒啊！同时你们也很辛苦！但陈老师看到的是你们愉快的学习，真为你们高兴啊！你们记住陈老师今早说的：“只有端正态度，用心学习，你们收获的不仅仅是更多的知识，同时还成长得越来越好！”只要愿意学习，你们每个孩子都将成为最优秀的自己啊！希望我们今早的“聊天”能够帮助到你们，加油吧！
+
+### 本日推文
+
+[新政丨云南初中生体育考试100分、音乐美术各20分这样考！](https://mp.weixin.qq.com/s?__biz=MzAwODU2MTU3NQ==&mid=2652138986&idx=1&sn=bd90e727c21c8e7b41b32ca2d24ce494&chksm=808c3b22b7fbb2346fbc73f80490b75a44f38d407794e1ba3fc3891c5ff1862093a0b17c89c8&mpshare=1&scene=1&srcid=10287qh47hSorxwW4QjKZ0RO&sharer_sharetime=1603882248413&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=799ec3b15052ed3c1b01eb582e8b7e9b1c94f4381ac68cd71697b8ce71c88ccfd9f43002a563d195e723cc5e5ff5142be0cd8e5a3cb23c53dbd09920b6030ee271accb1d59c11d5bbb8765146c79534d1540e5b1655d76c5f5bd428119946c9e915e0f5e7a62af3b2de93b7dde82f9eeabbf4c0d4c4d863ecd9deae28a725968&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AVEhwXHtkaN3HkLsxRtAYdQ%3D&pass_ticket=8L2%2FrCy1NfMTNa7n63YaZvEXShQZZI%2BqfXXIGOWJyiicUMG87aYGyuz6aCWQ4mcR&wx_header=0)
+
+[别拿孩子和你小时候比：孩子已经变了，老师和家长却还没跟上！](https://mp.weixin.qq.com/s?__biz=MzIzMTAwMDA0Ng==&mid=2650612260&idx=3&sn=23727750c9ced1dc19a29e8d6691a505&chksm=f0a350a5c7d4d9b39270313f29bb2a436cc795c10eb44165a0d4fa79bfa250866a8f574c8870&mpshare=1&scene=1&srcid=1028GkRZVTzh9mq4nVrNJIAt&sharer_sharetime=1603882271549&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa67051a200f1224dfd2d406b304d21974a92970687fc62297aa8ad33d9d5c1dd28caae6ec9a4d5acaea86bf1cedde53be417948271da6b771e4d169f1b1765e0ed39adff297bb6941a4ca2f98428a469565e7cee9d092c7ba89c533dda3278a655c6210443d7a456395a84d8293cc8cfad1be884f80ff107f14a&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AcIBuji5FfaG%2BAxPznfhU8k%3D&pass_ticket=8L2%2FrCy1NfMTNa7n63YaZvEXShQZZI%2BqfXXIGOWJyiicUMG87aYGyuz6aCWQ4mcR&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**送元二使安西**</font>    
+> <font color=lightblue>**唐	王维**</font>     
+>
+> 
+>
+> 渭城朝雨浥轻尘，
+>
+> 客舍青青柳色新。
+>
+> 劝君更尽一杯酒，
+>
+> 西出阳关无故人。
