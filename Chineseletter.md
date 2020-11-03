@@ -2042,3 +2042,102 @@
 > 劝君更尽一杯酒，
 >
 > 西出阳关无故人。
+
+## 2020年10月29日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！本学期我们开展的语文学习活动，如：“作业展示”、“听写小老师”、“读古诗  讲故事”活动非常受孩子们喜欢， 今早孩子们又现场积极地报名，只是辛苦你们用心陪伴与指导，真心感谢你们啊！第一轮的报名早已结束了，陈老师希望每一个孩子都积极参与，积极锻炼，相信孩子们一定会成长为最优秀的自己啊！另，今早又在课堂上强调了“改错方法及步骤”，辛苦你们积极引导、督促，及时改错。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！每天看到你们发给陈老师的展示作业，陈老师仿佛看到了你们在家里学习语文的过程。用心书写，用心朗读，读写永远是语文学习的核心，永远是语文学习的关键。你们一点点的进步就印刻在你们每一次的读写作业中。同时，也希望你们加强自我锻炼，积极参与各项活动，努力成长为全面发展的好孩子，加油啊！
+
+### 本日推文
+
+[真心赞，云南女孩！](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247595794&idx=1&sn=2d1c1b829f9f8e9035c0b7e89d1174e3&chksm=fa4a4c73cd3dc5656e2e04e8d6afa6cc83b3c382fc769dca40903d6dc58030de985fc02284cd&mpshare=1&scene=1&srcid=1029qUfV8dipTmLbMizQEBDc&sharer_sharetime=1603969532631&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa6708613ca28b602e4c7e4e64182be0431f259b184c2b6cebf51625941a0ab1246fb82bbb0cc439b0662f000e2752684e63acebec07207f83247a161a41a9f285f56fa690e11c043f36e3961b80d664ed2dcf47244cf603e4ef98768938392308638bf1c533648280d1657d79ef38ca4fde6d0aa7d8429f5faf0&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYpZ3YEBzF2OvjkmoVVIxgA%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+[如何培养孩子注意力集中的好习惯？这些方法送给家长](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247494151&idx=3&sn=89531e5ea808ad067ee3bc779113d5e3&chksm=f943285ace34a14c1a6559b9bf4d77d8d3cc8890b814c8d1b6dbde5b450f1205e5ce7b444d60&mpshare=1&scene=1&srcid=1029K1WXgMZqaxFc7l6NZgQ5&sharer_sharetime=1603969545132&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa6702d3fb8faa27c384de3b48f7b1ef8dac867787d0f9aecb67ab2ec0b4b99b07e97c87283b7906f461aeaf2558936af0415117d4d3502360755933a7e316b7abdc477e290541d1b1af3349e74ddb52098c41813e3cdcaba13500686cd9255dd4ef8d718991d97bdba94726f78661899df9f7814ad5218cc6432&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATQDI3SPyYIBnmLx%2BS9pxZ0%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**九月九日忆山东兄弟**</font>    
+> <font color=lightblue>**唐	王维**</font>     
+>
+> 独在异乡为异客，
+>
+> 每逢佳节倍思亲。
+>
+> 遥知兄弟登高处，
+>
+> 遍插茱萸少一人。 
+
+## 2020年10月30日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天课堂上我们结合“快乐读书吧”内容对第四单元进行了整理复习，本单元语文要素：1.了解故事的起因、经过、结果，学习把握文章的主要内容。2.感受神话中神奇的想象和鲜明的人物形象。孩子们从今天起开始阅读神话故事，学习把故事的起因、经过和结果连起来概括文章的主要内容，同时从故事中找出想象神奇的地方，再去感受故事中的人物形象特点。第二阶段会安排同一主题，或近似内容的对比阅读。另，记得和孩子完成10月份的自评嘎！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早我们对第四单元的学习内容进行了整理复习，其中邀请了几个孩子朗读陈老师提供的学习资料。从今天起，陈老师会不定期的对你们进行这方面的训练。每天坚持大声朗读，每天坚持默读（边读边思考），这是学习语文最重要的方法。每天家庭作业中的“每日一诵”就是自我锻炼最好的时间，希望你们认真对待啊！转眼又是新的一个月份了，记得好好作“10月自评”嘎！加油啊！
+
+### 本日推文
+
+[首场中共中央新闻发布会，传递这些重要信息！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658627219&idx=1&sn=b6147b32c18cf07c9b673ed94adb91a0&chksm=bd5fbafc8a2833eacdce410b59831af1768bc2305d0103679f0c99370fa9448836c992a83b83&mpshare=1&scene=1&srcid=1030PTYHpyNWEGZow5sh6krD&sharer_sharetime=1604049291292&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=df4daa9b126aa670d6d19d6335dc87257b194cb15d0a56f56d2fee608e83abe27842f4a5b63e7b6e6726dcd8087bd0f93b0a329cf252360a995b706ec9ddadcbc93a24d3185cfaf1c201d174f9018b5093e71214009a1007eabb1edea8ac4aa743ab389357a91b62cd6c20a6c3c55041a896530fbba8488b2b2e973014f35dd5&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQVYNx7juytEUEX%2FsUFbyJo%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+[学好语文有时就是靠背！这两位特级教师说透了！（附推荐书单）](https://mp.weixin.qq.com/s?__biz=MzIyMTY0NjM4OA==&mid=2247523774&idx=2&sn=9238b113db3df21c34cecf02c83ee162&chksm=e83b46e5df4ccff368de1e78cc831e2a5a94911b7036ba1751b35b7b7d8fdac6ad9e987f77e1&mpshare=1&scene=1&srcid=1029rYZeaI2imubaNPyY4sub&sharer_sharetime=1604049319148&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d750115739a086bdb6724a22391d4e7477469a102555baf7f82feca2c92783f009606e7688afeb7eda8682e4ea0c04c249b16bde3fa54d8f53b5809e4d72669dd048966afe6994c7dc7c4b367871a453bee18de4fe0d50a4c1c884398238f253e676471abc7ef805ee81c1ba06a2cb37383056d4d4505a5c34&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ARx8JkOeD8mnjvuh54dXiJs%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**静夜思**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 床前明月光，
+>
+> 疑是地上霜。
+>
+> 举头望明月，
+>
+> 低头思故乡。
+
+## 2020年11月2日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！从今天起，孩子们进入下一阶段的学习，《作业记录本》也启用新的一本了，请提醒孩子们用透明书壳包好。10月份还没有进行“学习习惯”月评的请及时完成，陈老师也会以微信形式分别给每个孩子进行点评。看着你们一天天的“留言”，我欣慰与感动。谢谢你们一直坚持和陈老师对话，和孩子对话。相信我们携手努力，会让孩子们的学习生活更美好！加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！转眼间，我们从今天起开始了这个学期的第二阶段的学习。课堂上陈老师简单作了统计，已经有一大半孩子进入阶段性复习，真为你们高兴啊！你们知道：语文学习就是一步一个脚印，一天一天的积累。语文学习最重要的方法就是多读，多写。能做到经常性复习的孩子就掌握了语文学习的要领。孩子们，从今天起开始努力吧！加油！
+
+### 本日推文
+
+[真·醉了！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658627806&idx=1&sn=816233a96c15945b1f87e8fc4ae86d4c&chksm=bd5fa4b18a282da7f51fa00cebee1bd0cf7a2833fc6c0bc1719a52f1adce630c5177566827be&mpshare=1&scene=1&srcid=1102C15zei1mWS68T6c1bCNm&sharer_sharetime=1604306398618&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=126745e5a1fffccf4b9b830c3bcc10d053e3d5580e6e719bfb577aca8e4efe772a33ff27fce9c09b29ac66ea3fc6a8074e9fb50a51baaef8be1ded31f1346947f8569f4880b535ba0b1892be6dce3d76548a119bb8e0daacda4566d5d260d3cc76782756741d53e0db8482ac03213e86af858254226fade234c4ac3d1599ccad&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Aajmh3INHeF3dJ1MubfdoKI%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+[期中考试复习阶段，如何帮助孩子逃离“我太粗心了，其实我都会”的怪圈？](https://mp.weixin.qq.com/s?__biz=MzI5MzU5NjcyMQ==&mid=2247525039&idx=1&sn=0cc57d67e08fc1ede3e024c82f51ad8a&chksm=ec6d99f1db1a10e7d4d62aa492741637c0118c4b116823797c7d64bd365c6b47f1a8b923535e&mpshare=1&scene=1&srcid=11027BNRxBObFpPdhkXG4uEx&sharer_sharetime=1604306421197&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=590f90317dcde6d7ce7f18a06bf479a98ed13b5a258de02ef7a1ab303ffa5e9267f4c90cf078f1aa940ed4da39d961ac076f84f628352bdf7ad6109a1c7fdcadcdaf822aeece40c0de3fa705987305e10a11b3847497479dc9be95527d90188bf2d97705e9bf3d91fb947d9fb6ce36ea1e1175daa017be95772fcbcf7ed1fd44&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AT8CCh2rZ0HjjpQ5tJbjxKc%3D&pass_ticket=iqP91zmjk0IryYgkMZWbkbAmG9I0xoRb7swVcQUwz6CULEAzXYbvA7xKiAFuIrLp&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**古朗月行**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 小时不识月，
+>
+> 呼作白玉盘。
+>
+> 又疑瑶台镜，
+>
+> 飞在青云端。
