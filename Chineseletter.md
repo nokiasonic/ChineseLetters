@@ -2141,3 +2141,36 @@
 > 又疑瑶台镜，
 >
 > 飞在青云端。
+
+## 2020年11月3日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天课堂上和孩子们交流了关于“教材全解”一事。据我了解，很多孩子有这样的学习参考书，也在用这样的参考书。我不建议买这样的学习资料。理由：<font color=lightblue>**1.孩子认为，把参考书上的笔记誊抄一遍在语文书上就算做完预习作业了。2.孩子通读了一遍或几遍参考书，自己就认为学懂了。3.参考书上或许就有我们作业单里的答案，直接拿来就用。比如：查字典理解词语、多音字等内容。今天给孩子们这样建议：1.预习作业一定按照作业要求逐项完成，这样才能培养自学能力。2.在听课前读参考书，一定是边读边思考，一定是带着问题认真听课。3.切记读过参考书就不听课。4.对任何专家、权威等要有质疑的精神。目前市场上的各类参考书良莠不齐，帮助孩子们选择参考书要慎重。**</font>我们一定要思考：这样的参考书能帮助孩子们有效的学习吗？对孩子们有多少价值？与其买这样的参考书，不如多买一些适合孩子们阅读的课外书籍。
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天你们的课堂学习就像上公开课那样，每个同学的表现都很棒啊！为你们点赞哦！陈老师经常和你们说：“无论什么课都端正学习态度，都像上公开课那样上课，你们都会收获更多的知识，每个孩子都可以成为最优秀的自己。”每天的课堂我们分秒必争，我们努力高效学习。每当这样的课堂结束了，你们感到了兴奋与激动，那你们就一定享受到了学习的快乐啊！孩子们，要能享受学习的快乐是要付出的，加油吧！
+
+### 本日推文
+
+[今天，头条属于他们！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658627963&idx=1&sn=889ec5395ddd9978629c0a713cc63b6b&chksm=bd5fa5148a282c027674774552fcebb0f5583591a7d4b93a5123d1f6eb6ed310ac4fcab45555&mpshare=1&scene=1&srcid=1103VNzpW23J8SkZj870wUIn&sharer_sharetime=1604394526280&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca83d371ba590581ca0aa514f861694c647c122943269c2e067ba4dcdf14182b986abf42e58d02eec5a6404236907b02fb52d60492eee8d67202ffe6f12f2a0cd4e7ca5da8814455ec0abb57ccf474c98435cd86114ab722c26b6503319bd5cccf00d8a3e30bf87794d1150e240ed689949b569709461c2d193&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ARKILR%2BHpSz%2BjaNWuncZIuU%3D&pass_ticket=iMLn1rc%2F5ekcUwiVruIKii8s4%2FlleNBWtH7aZOItPuSrPLTT4l335RIRW9ktRcKx&wx_header=0)
+
+[你的孩子并非不听话，是你缺乏语言能力，先试试打破否定式沟通吧](https://mp.weixin.qq.com/s?__biz=MzA4Mjg4MDg2OA==&mid=2650061711&idx=5&sn=1804ead9139bb9129dc55811801e7925&chksm=87feeb84b089629257336e798d23d15feddae512fad23e515a98e6423ae9052bd13a0bf74e4d&mpshare=1&scene=1&srcid=1103V9aM8zUplCoIo4XhV3ym&sharer_sharetime=1604394540112&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=0ce6e483c2c8fc2e1c722eeaae32cfe7f01e5d7f328d36ad3c1188c77c29ac102f6af27be349282cbde8e38379e3cba22c7a2f8d7d1416a5dabac1b909724b6da7764a330cf9f69b20d48190d59a5bd0bb752fa3c329c2d8215b35551db605de49143ecc24400e0c9a568bfc527c602db95c0780659b829fe060190f82d510b4&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AcrFtNKGdXveBa8XMk6XpFY%3D&pass_ticket=iMLn1rc%2F5ekcUwiVruIKii8s4%2FlleNBWtH7aZOItPuSrPLTT4l335RIRW9ktRcKx&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**望庐山瀑布**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 日照香炉生紫烟，
+>
+> 遥看瀑布挂前川。
+>
+> 飞流直下三千尺，
+>
+> 疑是银河落九天。
