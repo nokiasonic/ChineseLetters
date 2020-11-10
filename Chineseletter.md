@@ -2174,3 +2174,174 @@
 > 飞流直下三千尺，
 >
 > 疑是银河落九天。
+
+
+
+## 2020年11月4日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天我们学习了16课，学习课文的表达方法——怎样把一件事情写清楚。首先孩子们要了解课文讲了一件什么事？学习按事情发展顺序写，写清楚事情的起因、经过、结果。把握课文主要内容的方法就是把事情的起因、经过和结果连起来。这个知识点是中年段最重要的内容。从今天起，孩子们在课外阅读故事的时候尝试着学习这个方法把握一篇文章的主要内容。另外，把握文章主要内容的形式可以用“划双斜线”划分课文结构，或用文字叙述，或用“示意图”等表示。最后要提醒的是今天作业单里就有学习课文写法的训练内容，请你们积极引导。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早开课前表扬了你们端正的学习态度，希望你们每天都这样学习！今天的学习内容是习作单元的第一篇课文，我们在进入课文学习之前首先通过读“单元导读目标”，从而明确本节课的学习重点。接着，我们采用自学的方法了解了作者怎样把一件事情写清楚的方法是按事情发展顺序写，写出了事情的起因、经过和结果。我们又通过自学，还了解了把握课文主要内容的方法就是把事情的起因、经过和结果连起来。习作单元的主要任务就是习得方法，学以致用。所以，课堂上我们紧接着就进行了当堂练笔，这就是今天作业里最重要的内容。另外，请按要求认真完成“词语卷三”的改错。加油啊！
+
+### 本日推文
+
+[爸爸这个行为，引全网点赞！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658628276&idx=2&sn=5f6d8d946c9411e75d0a7b63c38382bf&chksm=bd5fa6db8a282fcd5d295b2aa2f9304e30991292c48d76a175de8cab78868f4a8272cfa1b57f&mpshare=1&scene=1&srcid=1104noiu5kS8Mg8mbrvVRzS3&sharer_sharetime=1604480418254&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca87a33d3d8d437db4eecce0a45391aca3c9a42a7bd3fb7989fb50329a4d2a7f80e094ff2507945bbd4e7d8226971f4098c71651951f4698c6e6e1e6cd0ac8c8dd8795b120aff41a80eee2de3b503df620a359a5f14980f8dbd0464febbb5ffb1884b1351fcef357e3fa61ed8c221476c7cb6f412de16de8068&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQNt7x6ZN4GkMXV4acPZ2EQ%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+[掌握这18种方法，轻松做到“理解词语”](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247494301&idx=3&sn=41aeeab50533dc88fc63606e9cebdebe&chksm=f94328c0ce34a1d69ec3cae7aa41230da076ab8645beb20cea99774397ef7796a4176ff0dd5b&mpshare=1&scene=1&srcid=1104960x4oTI40udJ04LG1kp&sharer_sharetime=1604480429286&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=83be519b530a091e9f7ca91c156ec467375c3816c217760a73c716856d13eac42f2cc8608fa57a9531272bb4b79ddeec1b680a60b709be2fb5c45e11a1c4edcaa7cae922a95e2709279b9e363da418045f36227803b28753fa2c4a0168f59be180b13da128181fa45bf8679a5b38dbb91f6bd4c607c0bd1d4e9fca8d2d3d3f76&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AdmtsZRtIoSMGh0Hzjw7TC0%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+### 每日一诵
+
+> 第16课
+
+### 古诗一首
+
+> <font color=lightgreen>**赠汪伦**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 李白乘舟将欲行，
+>
+> 忽闻岸上踏歌声。
+>
+> 桃花潭水深千尺，
+>
+> 不及汪伦送我情。
+
+## 2020年11月5日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！今早我们针对“错词多”进行了大讨论。孩子们都知道：只有端正作业的态度，认真完成作业，熟读课文，边读边看边想，改错动脑筋，就一定能克服写错字。另外，我们还对一类字词进行了边复习边检测。在复习的过程中，我们也发现了一部分孩子连基本的一类字组的词语是什么都不知道，或是不够熟悉。想必，这也是错词较多的原因。我们在检测一类字词的时候特别训练了“写字姿势”，从今天起，你们要找机会对这项内容进行评价嘎！你们知道：孩子们的视力保护从每一天正确的读写姿势做起。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！今早课堂上开始作一类字词的复习及检测，你们都能积极参与，认真对待。在家也用这样的方法进行复习巩固嘎！但一定要记住口念“写字口诀”，或心中有“写字口诀”。另外，我们还对“颁奖词”作业进行点评，表扬了一部分孩子能按要求自学，还能用心思考，大胆表达。陈老师今天还对你们说：“作业是会有难度的，但用心对待是最重要的。只要你们每一次用心练习，就是一次提升。态度决定质量。”加强复习，用心作业，你们一定最棒啊！
+
+### 本日推文
+
+[深度解读云南"中考体育100分"：近视被扣分？体育咋补课？](https://mp.weixin.qq.com/s?__biz=MjM5NDg5MzMwMQ==&mid=2671213962&idx=2&sn=e9ad98d341858a261c55c89ff134c3aa&chksm=bc4301108b348806771d79e4ed845c1302c4704c8ac0842ef9bdafdf54f4c9fcc596bb307901&mpshare=1&scene=1&srcid=11059ZOamroq4Wn3LaxL68GF&sharer_sharetime=1604572450993&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca895682ce00ac1248f2041a5831b0e50293a91aca08a01cd6bf1d7754328e63483768d4524e39732a31a29a6c0cb85eba0e7d59142754911303851e216a727261e85f8e1bf5d6d971a277ca0fcd41aa03acc6187b123d54f070bc8115296703f02bdb4a996231f683a6f73227f9b1a01bac9d8b4b39d270326&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ATLZlNIl5zaRrMZMRPcryhw%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+[5个表扬和批评孩子的科学方法，转给家长看看！](https://mp.weixin.qq.com/s?__biz=MzIzMTAwMDA0Ng==&mid=2650612483&idx=1&sn=c793926b1d2f042a073bbf4dc344123b&chksm=f0a35182c7d4d894e7fbe22ce2256a36d89b94febda13b19b426496c8c599765546107fc26d9&mpshare=1&scene=1&srcid=1105sQx7ylchjnENbhSGrXoI&sharer_sharetime=1604572471087&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f12253c64e016700db82213aa5c5f9b755e1c83ed417518aefef1a2d8a82bd05c170690aa2c67618dfba31e1137e752992acbdbdd7e0d17ad92d1c3f0b27a313da191d00facc13a86817fa1f43cdee87051608c7f3b1dc87410a9d7f6ab12310a38fd4987032bcfdf70fb65f93de7c586879878594480a0bfb2&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AVS1WKwS28vmx0nPetiXrtw%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+### 每日一诵
+
+> 第17课
+
+### 古诗一首
+
+> <font color=lightgreen>**黄鹤楼送孟浩然之广陵**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 故人西辞黄鹤楼，
+>
+> 烟花三月下扬州。
+>
+> 孤帆远影碧空尽，
+>
+> 唯见长江天际流。
+
+
+
+## 2020年11月6日
+
+### 家长寄语
+
+亲爱的大朋友们：晚上好！近段时间孩子们上语文课的热情高涨，陈老师首先要感谢的是你们。从每一天批阅的“留言”中，我感受到了你们对我工作的积极支持与帮助。谢谢你们啊！孩子们在学习道路上有你们温情的陪伴，孩子们是幸福的！陈老师也感到特别温暖啊！你们的陪伴为孩子们将来更高一个阶段的学习奠定了坚实的基础。我们的教育过程无论是育分还是育人，第一位该思考的是孩子们。站在孩子们未来的角度去想去做，无论如何都是正确的。愿我们携手前行，温暖相伴啊！
+
+### 学生寄语
+
+亲爱的小朋友们：晚上好！每到周一陈老师最开心的是批阅你们的“仿诗作业”。每一次周末这样不断的练习积累，让陈老师看到了你们前进的脚步。你们可不要忘记对爸爸妈妈说声“谢谢！”是因为有了爸爸妈妈一次又一次的引导和鼓励，一次又一次的欣赏与指导，你们现在的“仿诗作业”已经成为一种习惯。虽然也会有抓耳挠腮的时候，但更多的是完成作业后的快乐！ 陈老师对你们说过：“作业不可能没有难度，你们需要的是战胜困难的勇气和决心。”你们应该体验过：当你们努力、用心去做一件事后，你们收获的不仅是结果，更重要的是你们获得了成长。加油！少年！
+
+### 本日推文
+
+[教育部长陈宝生：锚定2035年建成教育强国的目标，全力抓好贯彻落实 | 五中全会大学习](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651553234&idx=1&sn=b353698c25f0a75086028b67988bd5ac&chksm=80348413b7430d050df974a5a8d1c2b0f753e2f400d091ac62888507d84b69a577d809bccb53&mpshare=1&scene=1&srcid=1106ubdLGfkVyJKaIm8WhTgq&sharer_sharetime=1604656518330&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=f41b26518d327779f864ad1a1171856c04260399333a650cc6a4e71a8bd061d8bdf477ca75a2f8f6c05f9907766b9ea04253d85ddc39722441892d03a93e0fdcae17ac678f78bf22d7f19551474658b182381637acb0156cb48e4eab6408be9bdefe6ddce12d90630af17184286c5cd2c8922bf1524dde880fd5ae0c4286ea54&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AUqiG2rcwT0cwYuOda73itA%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+[孩子学习不专心？15道选择题，帮父母了解孩子的注意力是否达标！](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247494365&idx=3&sn=47fa9d485a0f72e57d433d7f659b649d&chksm=f9432880ce34a196b866585802f25609799f6b93892ac431530ec8370b861e7c2ca9986074d9&mpshare=1&scene=1&srcid=1105Ww6cVqEFBZHfYJQkhQOa&sharer_sharetime=1604656564124&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f129275b56f220e6128988f1b7ff6fc29a9eb695357fb9fef6bfdf3a94c0a4511257588f7ef541f5285125d703f789929de6aeb79a72e49b652e9c2ee7f6833fcb632d83e3a556fbcac8f1bd75548a22aeb7aa8db7bf5d0b1ed82dab4c51f7c004f2ba416bfa0069093575d57550c8c71d633be7590a7496887&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYF4cDwb6D4cUPmFgzJNI2Q%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+### 每日一诵
+
+> 自选内容
+
+### 古诗一首
+
+> <font color=lightgreen>**早发白帝城**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 朝辞白帝彩云间，
+>
+> 千里江陵一日还。
+>
+> 两岸猿声啼不住，
+>
+> 轻舟已过万重山。
+
+## 2020年11月9日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！近段时间一直在强化课堂常规训练，陈老师希望孩子们每节课都端正学习态度，以饱满的热情参与学习活动，孩子们表现都很棒啊！今天陈老师还对孩子们进行“书写姿势”的强化巩固，希望孩子们提笔就背诵“写字口诀”。用这样的方式不断巩固书写习惯，更重要的是帮助孩子们提高书写质量。我们经过一段时间的努力，孩子们的书写水平有了一些提高。陈老师希望每个孩子都在自己原有的基础上有所进步。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天课堂上看到你们脸上洋溢着学习的热情，陈老师很高兴啊！你们可是不知道，老师们最怕上周一的课，因为这是“周一综合征”。具体表现就是课堂上学习没有劲头，学习精力容易分散，似乎还在“过周末”等。陈老师努力让你们每一节课都开心学习，收获多多，你们也要加油嘎！
+
+### 本日推文
+
+[快来！更了…](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658629692&idx=1&sn=a4224b204ba0826093559038369cf8a0&chksm=bd5fac538a282545620c06de50af6e0373ce26e524a262677a134977a7da42a8cd8f3c3996bb&mpshare=1&scene=1&srcid=1109BY796p4A3FQbl8SVvq8Y&sharer_sharetime=1604912643831&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f12a7e31c9648b01041ea535a74d8fa3b86697d7d287074aa44d99165d0b9a09d8c0924873f5bc146821ea48a18b3a17fae6890134197417f80df3908b8151fb20e3bcc14948abdb3c4d200dbc13fcfe832c1d12106468dd9a7e4afa2ded11b337a5573b731aaf0047760775915fdb5863e66818e49ca28a1b6&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AUb7IWQ0Zvzry%2BlXkJA5euc%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+[李玫瑾：如何培养出快乐、温暖、人格健全的孩子](https://mp.weixin.qq.com/s?__biz=MzU4NjA1NjQ3Mw==&mid=2247674306&idx=2&sn=15a86ff3d772493c3a22bf97a5f827e0&chksm=fd8d7fb4cafaf6a275d6e8f4b069f26930a21b30611756b22d83b0f7a4df0d007ca56264c492&mpshare=1&scene=1&srcid=11068jTrrIEWE5thmGVFXCqr&sharer_sharetime=1604912673975&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4e15d10e4786ef6d350c97abf2c7b8fd61a37401424e5fc64c9d5c260ea5417e839d1917bf99078bd5021867c736f457f38704392d569233afc866bb959713bd53ec296e34dc02c080580710fa68ef8707cebb8d93d1c173ba3011e229347f845ee48873292ae0b0a36aab6af58a35ca607e00e542c39426cfb231d6ea9dfaff&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AcReKhA836vQa2w53vpb8g0%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文
+
+### 古诗一首
+
+> <font color=lightgreen>**望天门山**</font>    
+> <font color=lightblue>**唐	李白**</font>     
+>
+> 天门中断楚江开，
+>
+> 碧水东流至此回。
+>
+> 两岸青山相对出，
+>
+> 孤帆一片日边来。
+
+
+
+## 2020年11月10日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！本学期我们开展课外阅读记录活动已经半个学期过去了，大部分孩子能够按照自己的读书计划坚持课外阅读，提出表扬啊！也有部分孩子因为作业等因素影响了阅读时间，还没有养成阅读习惯。我想：加强自我管理真的是势在必行。但凡不能坚持阅读的孩子，或是没有养成阅读习惯的孩子，一定是自我管理习惯还需要培养，自我管理能力还需要加强锻炼。只要做到自我管理的孩子，他一定是时间的小主人。努力吧！我们找准目标，每天坚持进步一点点，相信我们的孩子们永远会成为时间的主人！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！本周学习任务放松了一点，目的就是让你们适度“停一停”，学会自我管理。从经历的这半个学期的学习中反思问题，找出改进的办法，才能更进一步地进行后半学期的学习。从你们的“课外阅读记录”作业里，陈老师看到了你们每周课外阅读的情况，为每天坚持课外阅读的孩子们点赞啊！同时，也提醒没有坚持课外阅读的孩子，一定找出问题，努力改进。哪怕是每天坚持课外阅读10分钟，一学期下来你就会发现你在悄悄的变化，其实这些变化就证明你在进步。努力吧！孩子们！
+
+### 本日推文
+
+[朱永新：没有父母的成长，永远不可能有孩子的成长](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651553343&idx=1&sn=f1077590710c2a7bb97365c6143d58c1&chksm=803487feb7430ee821718d2aefbaff112384fb855c377bb2a2d825b766d29b27ee21d55ae827&mpshare=1&scene=1&srcid=11100GDs6aCLG9VnAp9RGK8L&sharer_sharetime=1604998982215&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f12311081a69e35e19f0700696bf39b08b7d36c918e7acf34416fccaa5a3650a721395024527732293c6a48468269f3c493c2d69a9a283b74c2f3c93d13624048ec334fa26ffd8a044efa8f6eeab0181b286d7a7f562a2c51191d83eebca02f767b6114be8e30a0da02655026a634354d109c5562924a2c46dd&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AT08QK21cOhI9UKabDiiKUA%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+[致家长：教育是一次爱的碰撞，家长与老师配合越好，孩子就越成功，共勉！](https://mp.weixin.qq.com/s?__biz=MzU4NjA1NjQ3Mw==&mid=2247676516&idx=1&sn=d2653463c12f793e5f3bec439530e5bd&chksm=fd8d6412cafaed043bcc47e5d55775b5ee86d8e4f3c6dcbb9bb909a49e3f0531de2f151f5dcc&mpshare=1&scene=1&srcid=1109fFgbQM3CCEh4r8WRGpEy&sharer_sharetime=1604999002285&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=f41b26518d32777997006a0ed1773243d82f3497040771dda597df2d248c34503ffd70349c40cc4c3239584e85d3e29c018f27a49524e4f640d54642bb30d910930e33789a90af66862e3d4b51c61854c352026680c2ec4c926fb372635e9973cf1004208be2e66b0df627c6d2383b10c7af94f08f0dee95f20ffd71dcdbf643&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQpZd6R0ILg91yLUlVJICx4%3D&pass_ticket=f%2BgYyHsNP8VHnrmkr5bGNxSf3BSOp8BKejviHFVoCZr1Bvu%2BlzAAVRhKTKKd5neB&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**别董大**</font>    
+> <font color=lightblue>**唐	高适**</font>     
+>
+> 千里黄云白日曛，
+>
+> 北风吹雁雪纷纷。
+>
+> 莫愁前路无知己，
+>
+> 天下谁人不识君？
