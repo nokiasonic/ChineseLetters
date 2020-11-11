@@ -2345,3 +2345,36 @@
 > 莫愁前路无知己，
 >
 > 天下谁人不识君？
+
+## 2020年11月11日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！我今天放学前走进教室发《作业记录本》，之后通知大家：“明早语文期中考试，今晚没有作业。”教室里顿时一片欢呼声。看来不做作业是孩子们最快乐的事啊！接着就听到一个男孩子对我说：“陈老师太好了，没有作业我就可以自由复习了。”接着又听到一个女孩子说：“陈老师，太好了，没有作业我就可以和我妹妹玩了。”听到这里，你们想到了什么……陈老师想：到了学期期中，学习任务适度松一些。这样做既可以减轻孩子们的学业压力，又可以缓和一下师生之间的关系。学习张弛有度，有利于激起孩子们下一阶段的学习热情与动力！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！陈老师再强调：明早期中考试需要填涂笔和碳素笔等用品。请准备好！另外，今天虽然没有布置作业，但我们的常规作业：古诗一首和每日一诵作业是需要完成的。本周学习任务减轻了许多，目的是让你们学会自我管理，适度调整自己的学习节奏，学会查缺补漏。孩子们：无论考试，还是平时作业，只要认真书写，把握好时间，把这半个学期学习的知识通过这份试卷输出来，就完成了一次考试。考试目的除了对学习知识的检测，更是学习态度和方法的一次检测。每次从作业里，从考试中有所收获，就是你们最大的进步！加油啊！
+
+### 本日推文
+
+[教育部体育卫生与艺术教育司司长王登峰：学校体育是为了促进人的全面发展 ](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651553465&idx=1&sn=f340b347a0861933502dbb2b47c04b5a&chksm=80348778b7430e6e069b97599ca71876c8d5f622ae398324c830892cac243fc08abfe643c03f&mpshare=1&scene=1&srcid=1111HRJ7sqBbB9y9aeJvciLz&sharer_sharetime=1605085237246&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=d83e56a3e12e5b90587f645f66b37de487badaa2cf775c151d84d930015666d44e4010019e36f3c5d2396698b9d93d8f08c02a0025357f55b8ea3b6990103e645fe13d1caebe0feccccbe0d0f8895ee5f8f3a7fd5ea791dfdf9eccd2ed7bd84c0632635f0b83f3b3c8022708d37f285dc84ec5a1c793c282bad4a3401e691149&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZmz3wTuwrViuDBMwsq1xeQ%3D&pass_ticket=%2Bqd1gVgLNA%2FsjwBlMu2tj6cujk6W38Doqu5jFJ1fp7asBpd9J0WInz9vQw33P284&wx_header=0)
+
+[省教育厅厅长周荣《云南日报》撰文：奋力推进云南教育高质量发展](https://mp.weixin.qq.com/s?__biz=MzUzMjkxMjUzOQ==&mid=2247494922&idx=1&sn=efe3dcb6b1d64b19160bfaee41c7fce3&chksm=faaeadfecdd924e89d96fd24a45b1acd97effa7092116f6886a1c6fa806b046bc78b62f441fe&mpshare=1&scene=1&srcid=1111CEmOoZPA8RbWNMHgdzmB&sharer_sharetime=1605085261580&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=d1d69f97a583cf2b80175feced266eacb2e44a89aea56e9131d0c672737fac4659b54629cd3a7e51c2d60cbc667c4e0d0cb81e354b0707f2cdb4201d0e6243752cc0ced6da4e953cfff4ecd048b0a8b2197141f0bf6ffc227de788ee0fac58066bbe0bedd0c7dce96e33ed662b1a4bff3c5127fef834320f2571a4ab00ab48dd&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYyPmW%2F6%2BcOytKMSF9gvljg%3D&pass_ticket=%2Bqd1gVgLNA%2FsjwBlMu2tj6cujk6W38Doqu5jFJ1fp7asBpd9J0WInz9vQw33P284&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**绝句**</font>    
+> <font color=lightblue>**唐	杜甫**</font>     
+>
+> 两个黄鹂鸣翠柳，
+>
+> 一行白鹭上青天。
+>
+> 窗含西岭千秋雪，
+>
+> 门泊东吴万里船。
