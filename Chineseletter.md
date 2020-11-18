@@ -2378,3 +2378,136 @@
 > 窗含西岭千秋雪，
 >
 > 门泊东吴万里船。
+
+## 2020年11月12日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早进行了期中考试，孩子们认真对待，提出表扬啊！陈老师想和大家交流一个话题：整理书桌。我们经常性这样对孩子们强调：课前要做好准备。意思就是，把语文课上需要的学习用品放整齐。每次课堂上有练习作业，第一个强调的要求就是置物整齐。陈老师这样说：“书桌整齐了，你们学习的过程中思维一定是有条理的，心情也是好的。”今早因为是孩子们在考试，陈老师就没有去干扰他们，让他们静静地完成考试。在巡考的时候，陈老师发现有一部分孩子的书桌上凌乱不堪。想必他在家里做作业，书桌上也一定是这个样子的。从今天起，我们把这件小事重视起来。我们共同努力，引导孩子们管理好自己的书桌，让学习的环境干净些，让学习的心情愉快些。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早期中考试，你们表现很棒哦！要赞一个啊！从整份试卷题量来看属于中等，完成时间应该是80分钟。你们大部分孩子做到了按时交卷，有部分孩子时间分配前松后紧，还有几个孩子实在是磨蹭。你们今天的考试过程让陈老师看到了你们在家里完成作业的影子。完成作业高效的孩子一定是专注的。只有专注于一件事，才能把这件事情做好。孩子们，记住陈老师说过的“把每一次作业当作一次考试，不仅锻炼了自己考试的心态，更是培养了自己优秀的品质。”孩子们，加油啊！
+
+### 本日推文
+
+[央媒聚焦，教育综合改革这样“动真格”](https://mp.weixin.qq.com/s?__biz=MzUzMjkxMjUzOQ==&mid=2247494977&idx=1&sn=358a5fc71c35687893280e74c1abae67&chksm=faaeadb5cdd924a34566494511030e8cc50abb4e395034031d63c19d75dd889ebb360fa1a333&mpshare=1&scene=1&srcid=1111tQVBEyWtDzXLzuXSygLs&sharer_sharetime=1605171780047&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f12fce97de1097c345416c2bbefb723cd7ea18d6c5c35512f8ea3e3c24739ebfaab157ca9b2f929e6a2f18c9502df6985db4f0a948b1527b801e648f098c747897a2ad9c59e924be4f859a1ab159bc628a0d469bdefca1de5a71d35dbaa4aa3db3a79b6b23b59eadd93497e0bbbb783263f65144e2592f2edc9&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQoXF86pRPBeBFwy2mqjYZI%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+[教育路上，最大的不幸是：家长越位，老师让位，学生错位](https://mp.weixin.qq.com/s?__biz=MjM5MDc0NTY2OA==&mid=2651529237&idx=1&sn=848ae33bddaf05e22d499badce3abf5f&chksm=bdbf953e8ac81c28b9e902f50c8db20b5ae9fec19de1c63f84696490e68cfa5f2be0e0745318&mpshare=1&scene=1&srcid=1112AdbwOXzMaLi6oT1p0S8r&sharer_sharetime=1605171801910&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f12208de50594fde77b9ccce69eba7c141c314cb24835e8effbdb07644d4a31f5b8ffcbba37abd8be7b768d84a43abb45c5b9f9d2fb98422b71afa2508d18fc77c628838eb4ca858bc307559b0a95f95d605d34e8feb91020b58c5e5f22d34ebf8bbed8d69c18713e9efbe8a38e0d9e00cf06b0ab4a228eac22&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AR6TIHGlibjP63N7caAqgxg%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**绝句**</font>    
+> <font color=lightblue>**唐	杜甫**</font>     
+>
+> 好雨知时节，当春乃发生。
+>
+> 随风潜入夜，润物细无声。
+>
+> 野径云俱黑，江船火独明。
+>
+> 晓看红湿处，花重锦官城。
+
+## 2020年11月13日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！期中考试结束了，孩子们最忐忑的就是面对考试分数。为了帮助孩子们减压，今早课堂上我们就聊了聊期中考试。一开课我就采访了2个同学：“期中考试卷上哪一点难？”孩子说：“是第一篇阅读题难。”孩子们体会很深刻，确实是这篇题为《微信》的短文。这篇短文是一篇说明文，难就难在说明方法上。我让孩子们重新回顾了各单元的导读目标，最终明确了“说明方法”这个知识点是没有学过的。我对孩子们说：“这里扣分不算你们的，算陈老师的。”接着，我又和孩子们聊了聊关于“阅读”的话题：“题量的增加就是阅读内容的增加，也就是你们阅读能力的体现。考试时间的管理，考场上的考试态度，考试时候的心情等，将会直接影响你们的考试成绩。要想提高成绩就得从这些方面自我锻炼。”最后陈老师总结道：“把每一次作业当作一次考试，就是自我锻炼最好的机会。”从今天起，孩子们完成作业需要自主安排时间，把每一次作业努力当作一次模拟考试，每天自我锻炼。相信孩子们不惧怕考试，以平常心对待任何一次考试，这将会是孩子们又一次的成长！加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早课堂上我们从期中考试聊到“阅读”这个话题，陈老师感到很高兴的是大部分孩子每天能挤时间进行课外阅读，并且认真完成每周一次《阅读记录卡》的作业。你们明白：这是你们每天的“必修课”，是一定要认真完成的啊！每一次阅读就是一次“提分”的基础。考试要想取得好成绩，必须通过你们每天坚持课外阅读这个方法获得。阅读的力量是很大的！坚持啊！另外，从今天起，我们要从作业过程中要速度，要质量。你们记住：把每一次作业当作一次考试，进行自我锻炼。这样坚持做一段时间后，你们会惊喜地发现自己各方面的进步会很大。加油啊！
+
+### 本日推文
+
+[【关注】云南疾控发出重要提醒！](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247601183&idx=2&sn=ecb9bbbde18987d20e36ff10c9198ee6&chksm=fa4a777ecd3dfe68d56b2c6f5dc1f9843ad1fc0f14e5a42c9fb05b46b64d06fdafbb43941af0&mpshare=1&scene=1&srcid=1113LEwb3sZmkvCmSR6pzHWI&sharer_sharetime=1605261189399&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=7d0169ea9b9c819fe2dbcc32699bb9e970b1ea360ff711a7e4fd30d8c387f940b1caa06870a8518f86368a6b169cf3df2c2969bce1849346420238b9dd16dc6fcd39a22e13e12025889547405f666249353686fa3ab0f13db4ea25b91ad2562daae39142fd8cf807f15b5861da282ba10056af0d8c4fd274b6d8deb13c3f856b&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ASonYC2WaMTbpuUmkJG04zQ%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+[荐读｜期中拿到成绩单后，请和孩子一起打败问题，别和问题一起打败孩子！](https://mp.weixin.qq.com/s?__biz=MzU1OTA2MDQ3MQ==&mid=2247490764&idx=2&sn=eaf0170c54cc095e407337e5de0c8091&chksm=fc1c5854cb6bd14260b2812ba473cf2a9496dec1dd3e960c9e75a7bfe771d852f0efce0da7f0&mpshare=1&scene=1&srcid=11131yFsee6cnfXdjBvBW6Gy&sharer_sharetime=1605261203023&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4e15d10e4786ef6d3ab79bcbeaa469350f2c3d30de61749bfbaeeef99fdf16bae8a4b50496775213c417525179e3742bdcc2b356996856604978b8f86cb45652231f51cabc417d0026e8164da17924dc57f390ad6823f062fe41f633898dff11a786d9b5cb0f3963b299e7c69e153971da43c455d7b324cea75881cc98d1626d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AWET1KLY7ZPxMtUhJIl7DGI%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**绝句**</font>    
+> <font color=lightblue>**唐	杜甫**</font>     
+>
+> 迟日江山丽,
+>
+> 春风花草香。 
+>
+> 泥融飞燕子,
+>
+> 沙暖睡鸳鸯。
+
+## 2020年11月16日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天和你们交流一个话题：怎样做个“懒爸爸（懒妈妈）”？这个话题的核心是——培养孩子自我管理（——学习习惯培养）。之前在家长会上也抛砖引玉地交流过这个话题，今天再次提出来的目的是请你们留意自己教育孩子过程中做得好的方面，以“讲故事”的方式进行总结，陈老师计划在期末家长会上安排交流分享。另外，我们“学古诗   讲故事”的报名活动持续进行中，请鼓励我们的孩子积极参与嘎！加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！上周我们班级按照板块内容进行了几次测试，陈老师将会陆续进行反馈。测试按以下标准作评价：1.基础知识。2.书写质量。3.卷面。孩子们，今早就有同学迫不及待地来询问期中考试成绩，这说明你们重视成绩，这是好事情啊！从另一个角度我们这样想：我们把每一次作业当作一次考试，每一次作业批改发下来，也特别重视完成的情况，也非常认真地自我反思。我想，无论你们以后遇到的是小考还是大考，内心都会从容、淡定。最理想的成绩一定是平时学习累积的过程。加油啊！
+
+### 本日推文
+
+[因空气质量好，中央给云南发奖励资金2700万元！](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247602152&idx=1&sn=c116f038ab67ebc2410daba138053647&chksm=fa4a7489cd3dfd9f2b4e72c4e89edeb778b7e17ce07986be7f22ccd148a04e91e7f72bba7400&mpshare=1&scene=24&srcid=1116MTCL5iFAAgvQGQFw84Pp&sharer_sharetime=1605514085114&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AaeRZhJs17SPB4Y2EzyRk%2Bk%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0&key=963daa410b850ca869263ae05f53cce3bc31d4817b9717476f4c608fd5e82304b360b72a19bb4331c84a0a33e0b339f353e1391706b65df8e71d544c9c611275bf7f2bbc526ab11775150cbc334216c086d0a42a35cf8de71e7c0944defec02c87526179abc024ed995bc480243f73f60894bfa072b03074cfca13c598f81cff&uin=MzU0MzU2OTE1)
+
+[朱永新：没有父母的成长，永远不可能有孩子的成长](https://mp.weixin.qq.com/s?__biz=MzA5NDE2MDY3NA==&mid=2649963893&idx=1&sn=2d8489f3234a480306fe42294d1e479c&chksm=88554f38bf22c62e7d70f8c059cfa92554c000d84f8eee4dbc4bbe236a4eef802815e0d71012&mpshare=1&scene=1&srcid=1115mdkw3FFTrahxjnAal5EY&sharer_sharetime=1605517545686&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4961fe92d783e4d761bf11d26da9ef41e34ea4167d55188ed1dcde757bd098e843ce42f726e3a7462075044dad318fdbd9f7543aca2010d5dfeaf6711b0317e4efd1a18e1638197bfe8f8527524946f6a4ef7129b4afe285e1be262545be620121ce7c42418c77d0016fbc1cabc01de8e453d9faae71758f5ee421128baa1ae5&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AUQz%2Fe90v%2Fcmk2EpnidgZqI%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**江畔独步寻花**</font>    
+> <font color=lightblue>**唐	杜甫**</font>     
+>
+> 黄师塔前江水东，
+>
+> 春光懒困倚微风。
+>
+> 桃花一簇开无主，
+>
+> 可爱深红爱浅红？
+
+## 2020年11月17日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！我们今天进入第六单元的学习，学习重点之一：学会多角度的阅读批注方法（1）对课文内容有疑问时批注。（2）对课文内容有体会时批注。（3）对课文写法进行批注。（4）对课后获得启发进行批注。今天作业要求孩子们在语文书上用这些方法进行批注。学习一边阅读一边批注将帮助孩子们更深入地理解文章。从今天起，孩子们的课外阅读也用这样的方法进行练习。学习批注阅读我们从今天上路，加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！从今天起，我们阅读多了一种新的方法：一边阅读一边把思考记录在课文旁边，这就是“阅读批注方法”。今天课堂上，我们重点学习了4种“批注方法”，今晚作业就需要用这些方法进行阅读批注。一边阅读一边思考，把自己的思考记录下来不仅锻炼了你们的思考力，还可以帮助你们更好地理解课文。我们中年段的阅读需要提高一个层次，从今往后，就用这些方法进行自我锻炼，加大课外阅读力度，让我们的阅读再上一个台阶啊！加油！
+
+### 本日推文
+
+[接受孩子的不完美，他才能成长](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247494928&idx=1&sn=a1cc4cf2914510bc1c9d3fc53a38e690&chksm=f9432f4dce34a65bb13ef8a64bf1cca087b541093045f8b722079a51420ddc4d76bccc470018&mpshare=1&scene=1&srcid=1117YaSDvU7Rfxydxm8DQWoS&sharer_sharetime=1605604137142&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=0ce6e483c2c8fc2e923185e9ee52c1a3d607db80319e0cfd00deee9447ecd31c0e4b03f678a394b3b4ce46d81eabd081e5b69ea2902f9a56532f654cb9ff0059936f0ebebe722dd8ea2c163b5c06b64ffb668cce13c6b8315ee9a3559a975fcfca9c0fad579a9b2d59f69c9040416bb4aa0331760eec223669337420c7343699&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXQihnElF7MhDC1XjxnUPsE%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+[关于疫情和疫苗，钟南山最新判断来了](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658632426&idx=1&sn=bf6d851fb80a11d317f1febd50237430&chksm=bd5f56858a28df9382931b5acefcaf80f7a88a97b94f96480679db770ffd9688366845bd8939&mpshare=1&scene=1&srcid=1117Qcjw8P2U1BQYZY53pUC6&sharer_sharetime=1605604198251&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=0ce6e483c2c8fc2e7950c945734679964e06d2f75b4fbe3f57f2733a4aa7243db0681d773659691b9204653f8f6ea4bca63de085339536366261ae92af4fa6417633398ff6156822c9fd6f23f15455c4a80bb8efc36700dd7a4e046253765662e4a6e7474b39cf63440fe54e90136f3f251b4fab954a25a87a033ca462300241&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQYOp9slckCBkg031zscv0A%3D&pass_ticket=54GLl4R5PgcPdTeoJ9RidbIeOuM6GP%2Bhinc4qoR%2FmkqQJkNI3SvbciC9blNaL6sl&wx_header=0)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**枫桥夜泊**</font>    
+> <font color=lightblue>**唐	张继**</font>     
+>
+> 月落乌啼霜满天，
+>
+> 江枫渔火对愁眠。
+>
+> 姑苏城外寒山寺，
+>
+> 夜半钟声到客船。
+
