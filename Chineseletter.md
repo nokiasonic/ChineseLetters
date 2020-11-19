@@ -2511,3 +2511,35 @@
 >
 > 夜半钟声到客船。
 
+## 2020年11月18日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天我们课堂上反馈了昨天完成在书上的“阅读批注”作业，我们从孩子们的反馈中不断巩固“阅读批注方法”。接着继续学习了本课的第二个重点：抓人物动作、语言、神态描写体会人物心情。今晚《巩固案》作业中的《阅读链接》练习将是又一次巩固复习。今天第二项作业内容是完成19课“阅读批注”在书上。请检查落实！这些知识点的链接将是我们下一阶段习作教学的重要储备。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天课堂学习节奏稍慢一些，主要是因为本课的学习重点不仅是阅读方法的重要内容，还是关联习作的重要知识。你们要勇于尝试，做到一边阅读一边思考。只要有思考的地方，就是你们将要批注的内容。初次学习会稍微困难一点，相信你们只要用心阅读，积极思考，“阅读批注”这样的方法将会是你们以后阅读任何一篇文章的日常行为。积极尝试，敢于下笔，加油啊！
+
+### 本日推文
+
+[68件流失文物，回家了！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658632911&idx=1&sn=c49981810c3e846756358cd5e7c0c1d5&chksm=bd5f50a08a28d9b6fb6e9468b7ef20bf93059bf1dedd16a742fc5a059e9b387797fbf5e7c795&mpshare=1&scene=1&srcid=1118G3MhdecmhY5cSlnGxA4o&sharer_sharetime=1605690069433&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4e15d10e4786ef6dcdb6ec5fe8ad0a3dcbd26b870cab1f795f7d6dff2e42bd0a35faf38b6c5a22eea2ac7787705b89639853872691a355b8d6c62c46d8929ba3e707a641ebc46e92bdaf667b04c6df88e9f97e128b19c5844ff146bab6eee63ce6cf68cbcd11056570fa383cabc9beb81db2b48e850404f38444f48984b99591&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AUJegVuBLb49YmD4wHrBfYg%3D&pass_ticket=3NHt0WxzDwK1fopBuT0VOHHTkD1t8kFMO5ViWfGwt9amqJM25ryv%2BsWCr%2FqQWGnR&wx_header=0)
+
+[性格比智力更决定命运！李玫瑾教授谈亲子关系对人格的影响](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247494928&idx=3&sn=ccf40dd2da40dbdc223fdb1b6f1945c5&chksm=f9432f4dce34a65b3093246ee109a26ed003c55054cf1640e29524a196c2e9a4a000b106051c&mpshare=1&scene=24&srcid=1118ZiWfnN3ArmmlyEAuiHtE&sharer_sharetime=1605687423111&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AYxIY6C84edrVawMA4LtqYo%3D&pass_ticket=3NHt0WxzDwK1fopBuT0VOHHTkD1t8kFMO5ViWfGwt9amqJM25ryv%2BsWCr%2FqQWGnR&wx_header=0&key=963daa410b850ca8e83b971361f3f06cfd8ff97721e757fce8eceae1f5165103c9f5b4591417567ac6527a9711c174ecd99bdebf3c926b76779560659217fdc64cdda724a36740602f1bfb5a7930fa94df7fb9d0e0c8c301264bad118d79b767142eddf1d42866a0af9352e50995d368b142487a1c6e9ce7ab3e5c3d6a0f51e5&uin=MzU0MzU2OTE1)
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**涂州西涧**</font>    
+> <font color=lightblue>**唐	韦应物**</font>     
+>
+> 独怜幽草涧边生，
+>
+> 上有黄鹂深树鸣。
+>
+> 春潮带雨晚来急，
+>
+> 野渡无人舟自横。
