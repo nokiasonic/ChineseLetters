@@ -2543,3 +2543,143 @@
 > 春潮带雨晚来急，
 >
 > 野渡无人舟自横。
+
+## 2020年11月19日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天我们学习了19课。课堂伊始，孩子们自由交流、分享了昨天完成在书上的“阅读批注”作业。交流积极，勇于表达，提出表扬。接着，我们抓住“我”的动作、语言、神态的句子描写体会人物心情的变化。这是关联习作的重要知识。学习进度慢了一点，但从今天孩子们的积极学习中看出来了“阅读批注”不再是那么困难，不再是那么神秘了。“阅读批注”的阅读方法将伴随我们将阅读进行到底。加油啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天一上课，陈老师就对你们说：“阅读批注”的起步是个困难，但我们一定要努力打败它。接着我们开始了昨天作业的交流分享。表扬你们积极分享，大胆表达。课结束前，我们这样总结：<font color=lightblue>**“阅读批注分四步，第一步：读到哪，想到哪，写到哪。第二步：总结批注内容 ，进行归类比较。（疑问类、体会类、写法类、启发类、人物类。）”第三步：针对不理解的地方进行多批注，同时通过阅读能够从文中解决问题。第四步：进行“批注修订” （1）批注角度发生变化了吗？为什么会发生变化？（2）不同的批注内容，前后发生了变化吗？为什么？**</font>“阅读批注”是个系统性的方法，是个反复阅读的过程。孩子们，只要按照这些方法认真去阅读批注，你们的阅读一定会更上一层楼！
+
+### 本日推文
+
+[世界纪录，破了！]([世界纪录，破了！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658633233&idx=1&sn=db4651636138f3c61f88bb0db637e603&chksm=bd5f527e8a28db682fea5c1b1087193e74d4b989aa5271d24c6ec52d93d7f77ffa2b2e667ec2&mpshare=1&scene=1&srcid=1119mIw7OxTuh6t3dUknJYBh&sharer_sharetime=1605776521171&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca8ae897e0ee233ea4b43d3d454f43cca4fd8652c39e67a8a83a27656f8550018610026769dc733a16cdaf5a4092a65faf5ed6bb76fc838740cc90a625b26add7895b43bf2a88a2b5cdca7cef5ba5a18bcb51fca2ff44d0893790a4366117f83cef51b1607f15ff2822d8f36424a97831c527b8cf4c2cb2ec5d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZZZh4BG7e04XW4z1k%2BVXiE%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0))
+
+[教育孩子平凡一些又如何？]([教育孩子平凡一些又如何？ | 观点 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651553705&idx=1&sn=ae1671d35cba11ee3274b13f851646ba&chksm=80348668b7430f7e697228dd9b2700444fceb4274f4dbd762c70ce01d100ccbfbd8bdf745a87&mpshare=1&scene=1&srcid=1116oYzobBAzChucnVpXCQc4&sharer_sharetime=1605776549025&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=7d0169ea9b9c819f4cc84cc5c52101a67a007f7cdfc8b1528ab8f8650dc5c0b54b75ecd26df67569255a54b8b6665f29442f2e8251843bd297f298857165c377c6c6d1234f73bd0f142535513b64aafb85f2eac733f9db9f4923014593d89c5c58e5cc4b435c151a63b792bb781b960a8de0fe4df66a4250038af5ee72f85589&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Af5QdcOlUrl1e%2BB3%2BocxSi4%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0))
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**游子吟**</font>    
+> <font color=lightblue>**唐	孟郊**</font>     
+>
+> 慈母手中线，游子身上衣。
+>
+> 临行密密缝，意恐迟迟归。
+>
+> 谁言寸草心，报得三春晖。
+
+
+
+## 2020年11月20日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早孩子们异常紧张与兴奋，因为他们非常关注自己的期中考试成绩。陈老师对孩子们说：“你们用这样的态度也去重视每一次作业，相信你们得到锻炼的不仅仅是你们无比强大的内心，同时还能更有效地帮助你们提高成绩。从今天起，自我锻炼，重视每一次作业，努力提高成绩。”试卷讲评结束了，要求你们和孩子们一起作书面的试卷分析。你们不仅要引导孩子们找出问题，更要用肯定让孩子们看到希望。陈老师在每个孩子的试卷上都有“批语”。1.“！”表示孩子做得好的或进步的方面。2.“？”表示需要努力的方面。让我们携手团结孩子们一起打败“问题”！加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早我们评讲了期中考试卷，表扬了一批同学，有书写进步的，有卷面整洁的。还特别表扬了10个同学。他们因为有端正的态度，认真完成了习作，这些同学的习作水平提高较大。记住陈老师说的语文学习过程“预习—听课—作业—改错—复习，每一个环节都要踏实而认真地学习，不能随意打折。”期中暂告一个段落，期待你们下一阶段的学习更上一层楼啊！加油！
+
+### 本日推文
+
+[昆明人的冬天，真的太太太太太太太治愈了！]([昆明人的冬天，真的太太太太太太太治愈了！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzA3NzA5NDMxNw==&mid=2652477933&idx=1&sn=ecfba1fd5c0226c67442695764427cf9&chksm=84ba752fb3cdfc39207e7a80489d571e5d856481582563667e970b6fd8d70f900700a344a814&mpshare=1&scene=24&srcid=1120y3kRluDbKMlfpElYYhKk&sharer_sharetime=1605845358635&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=ASz8p4HqnDwpZwQFBPsUkbQ%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0&key=7d0169ea9b9c819f52fbf6021aa6a5ff7007f37b7c57e545ef66d861b9c3ac9762f7d74b79b62e3ffb17e075f1b6dcdc3ebf998e4d62ded392f715c35342b03e5b69da7c2d9eac6e930ced01175769db787f87315b790f74f89aa8124146ceef386710fb8798f49ea19a1eb17fc036535ae119e92f5da40acbd5f8039c570063&uin=MzU0MzU2OTE1))
+
+[期中考试成绩出来了！无论考得好坏，一定要看看这篇文章]([期中考试成绩出来了！无论考得好坏，一定要看看这篇文章 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAxOTA1MjY4Nw==&mid=2652725908&idx=1&sn=e16259f5eb1ae5dbb95fa05bd87162db&chksm=80252374b752aa622e01afb09c3b40749031d4fcfad0113541b5971ab125f5cbc1d83d613d71&mpshare=1&scene=1&srcid=1117oYE6wrB5aBu6Cgk6kckY&sharer_sharetime=1605863111544&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=f41b26518d327779e65daa74048bdd751c92bc15240ea461055bdc26e33471018c7111e09cca3256e7887b3868ebb3b78bf6cfbdeb4e6b5475e275c952e95f2e20fe1f1adb08261f5ca04aa766e3ffcdb11afd90c836b72877bc4f984825fb759c1ee6114fb4c220b39a6c0b1a3705f9af09e8f2e01a59df705b7504d29f83d7&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZXhLGYJcLVopIwkWIX88dM%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0))
+
+### 每日一诵
+
+> 任选课文朗读
+
+### 古诗一首
+
+> <font color=lightgreen>**早春呈水部张十八员外**</font>    
+> <font color=lightblue>**唐	韩愈**</font>     
+>
+> 
+>
+> 天街小雨润如酥，
+>
+> 草色遥看近却无。
+>
+> 最是一年春好处，
+>
+> 绝胜烟柳满皇都。
+
+## 2020年11月23日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早和孩子们约定好了从今天起重视每一次作业，把每一次作业当作考试，认真对待，做好反思和小结，请你们引导并监督。另外，从孩子们的考试反思中看到：阅读理解是难题。其实这也是小学阶段最难，也是最重要的内容。陈老师和孩子们交流过：课堂学习是语文思维训练的主阵地，课外阅读是语文学习的拓展延伸，把这两大块抓实抓死，阅读理解就会轻松、容易些。有了课堂方法，还要有课外积累，才有从量到质的提升。所以，每天坚持课外阅读很重要。哪怕只是读10分钟，坚持下去，一定会有悄悄的改变。关于试卷中的个别问题，比如“改写句子”，找相关内容巩固方法即可。第一阶段的学习结束了，第二阶段的学习已经来临，让我们一如既往的认真学习，努力让自己每天进步一点点。我们一起加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！期中考试已经成为“过去式”，今早和你们约定好：从今天开始作计划准备第二阶段的学习，我们要一边学习新课，一边复习巩固，遇到不懂的及时请教同学和老师。我们做到及时复习，加强积累，努力让自己每天进步一点点。另外，今天下发了“一类词语测试”卷。这些内容需要百分之百的掌握。有错误的地方需要强化巩固复习。请你们把陈老师发在群里的“满分卷”保存起来，反复巩固记忆。陈老师会对这些内容作经常性测试。关于“改错”问题，今天我们达成共识：利用课余时间或在家改错。改错做得好的孩子的卷面一定是最优秀的。我们努力向他们学习啊！加油！
+
+### 本日推文
+
+[魏书生：教育就是发现优点，守住优点，让生命开花结果！]([魏书生：教育就是发现优点，守住优点，让生命开花结果！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzUxMDUyNjkxNg==&mid=2247491240&idx=1&sn=886c4682f5d6bba29a225cc2fc4240c7&chksm=f900ca03ce774315ea8a92cd2a9694d6c167b527769526408712701a516b2e579cf66ffece5f&mpshare=1&scene=1&srcid=11201QfpNzIhHmsltBxHbCgU&sharer_sharetime=1606122140615&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=93ec0f8768e11f1281372bf1533ab0bc36d4cf0932736c83aa040fecd955c7ee56efe41d3c00d082a0c73201268e3dfe19551a5cd197e60b911e9aef8d064b5442c4d2912dbb26045c66d9effd9d6061d8381d87bea11962ff1f8ced1f0f50a8aa59423b6547138cff42b301073575bcc6d16f96a9961ba84ce3e788fbbd20eb&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYufX6t1YqyppujOEZsN0fc%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0))
+
+[临沧市孟定镇坝区和清水河、班幸片区解除居家隔离]([临沧市孟定镇坝区和清水河、班幸片区解除居家隔离 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAxMjAyODcwMw==&mid=2650901783&idx=1&sn=38643b00127c1cac9b12853ad29577a9&chksm=804d3367b73aba717609ec46f1b602f69639958cfb793dcffbadfcfb73c14d7f8dab2a7fb7a3&mpshare=1&scene=1&srcid=1123svxfMon61AG5ahn2CVy0&sharer_sharetime=1606122233901&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca88c250a1172f81316848537a51200549d738ae498e024b90279751a78b6fc37881ef44922fba69c186eaf108145ad2bf954af8935dc73fb929dcce804e0d8dfbf90bbe3709cfa404596ed579b5c6b7f65c20df3fc3f71b1e33500150759abd7d6ce45324656828a98591bf6013c49480015431918e95652f8&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AU812d%2Bhqh5ZlR841%2F5Vbis%3D&pass_ticket=iNrOGvxdHQ2dc2Ij5dpkxXqjYSPxz8QsT7oOeHWdhxpnRLr%2BE8qWqlYDQm%2F0O3Lh&wx_header=0))
+
+### 每日一诵
+
+> 朗读课文第1课
+
+### 古诗一首
+
+> <font color=lightgreen>**渔歌子**</font>    
+> <font color=lightblue>**唐	张志和**</font>     
+>
+> 
+>
+> 西塞山边白鹭飞，
+>
+> 桃花流水鳜鱼肥。
+>
+> 青箬笠，绿蓑衣，
+>
+> 春江细雨不须归。
+
+## 2020年11月24日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早针对“一类生字测试”做了小结：1.做好《预习》作业中的勾画字词。2.读熟字词。3.针对错的字词加强反复记忆。4.经常性听写。5.陈老师不定期测试。另外，请特别关注1号本。1号本作业完成得好的，包括改错，错误率就会相对低一些。所以，从认真书写1号本开始，好好识记生字词。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早批改了“一类字词测试”的改错，大部分孩子按照要求认真完成了，遗憾有部分孩子没有做。改错有个“法宝”，就是陈老师说过的“有的错误需要反复改3—5遍，或5—7遍，才会彻底改正确。”你们需要更多耐心，坚持改错，认真书写，彻底减少错字。加油！
+
+### 本日推文
+
+[]()
+
+[]()
+
+
+
+### 每日一诵
+
+> 朗读课文第1课
+
+### 古诗一首
+
+> <font color=lightgreen>**渔歌子**</font>    
+> <font color=lightblue>**唐	张志和**</font>     
+>
+> 
+>
+> 西塞山边白鹭飞，
+>
+> 桃花流水鳜鱼肥。
+>
+> 青箬笠，绿蓑衣，
+>
+> 春江细雨不须归。
