@@ -2667,18 +2667,18 @@
 
 ### 古诗一首
 
-> <font color=lightgreen>**渔歌子**</font>    
-> <font color=lightblue>**唐	张志和**</font>     
+> <font color=lightgreen>**塞下曲**</font>    
+> <font color=lightblue>**唐	卢纶**</font>     
 >
 > 
 >
-> 西塞山边白鹭飞，
+> 月黑雁飞高，
 >
-> 桃花流水鳜鱼肥。
+> 单于夜遁逃。
 >
-> 青箬笠，绿蓑衣，
+> 欲将轻骑逐，
 >
-> 春江细雨不须归。
+> 大雪满弓刀。
 
 
 
