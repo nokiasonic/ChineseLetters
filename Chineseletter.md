@@ -2680,5 +2680,74 @@
 >
 > 大雪满弓刀。
 
+## 2020年11月25日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早课堂上训练了2个重点。1.阅读。要求：读正确、读流利。从今天起，你们在家可以从这个方面引导孩子练习。任何一篇文章，或长或短，读正确是第一步，在这个基础上练习读流利。之后作个统计：读几遍才可以达到要求。这样坚持练习，孩子们的阅读能力将会越来越强。2.阅读批注。我们今天学习了20课，从孩子们的交流汇报中看到很多同学对批注阅读有了兴趣。本课学习重点是抓住体会深刻的地方进行批注。也就告诉孩子们：阅读批注的时候要学会抓有价值的地方进行批注，这样的批注才更有利于阅读思考。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天课堂上我们借助阅读训练强化了中年段的重要知识点：概括课文的主要内容。只有把课文读好，才有能力把握课文的主要内容。读好书的基本要求是：读正确、读流利。从今天起，你们读书要严格按要求练习。坚持努力读好书，就是阅读能力的体现。课堂上我们还针对“有深刻体会的地方批注”进行练习，我们要明白：批注抓重点就有利于我们深入的阅读。孩子们，加油！
+
+### 本日推文
+
+[体育，是这世界最好的教育 | 荐读 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651554210&idx=2&sn=4d1109153f8cfc2256bf1323c342d460&chksm=80347863b743f1758bb5351dd663c5a5aacd64330229fbe9818b34ddbba0f297bd012ddb21ac&mpshare=1&scene=1&srcid=1125mDzrMLJuKb8zkFGsr3pw&sharer_sharetime=1606295022357&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=0ce6e483c2c8fc2e0a3593253bf300a076a90d542e5af5ae560698ad346eecc6ed58eabe11339a2b8c96b73d71d0612ae1df64727e752f2fb2d66ca277a2a6ec8ca082dbf163766b9ce341c2827040e412ad37000d63b6c6c3c3ea3687734b51f40816754d0fe5c74d5a75349a180fdb4363d3cdd21ad3ddfcbdcccd534967a0&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZ1%2FCNrY6KjEykCY5MozCh8%3D&pass_ticket=LyCvSHQLTZjbbdgJLER1AdDWY7Lel7P8Rlb9LXsq7uRi0rW0069LeieHb5JpWgCQ&wx_header=0)
+
+[致家长：教育是一次爱的碰撞，家长与老师配合越好，孩子就越成功，共勉！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzI3MTkyNjY0MQ==&mid=2247489702&idx=1&sn=f71f35abb5112443de107759395198b6&chksm=eb3b0cb8dc4c85ae653786cedbc39df0eed5161336d223ee8ecdb06aa0ff8f820be31dbfb865&mpshare=1&scene=1&srcid=1123rmG2aQD9BF5sxd7jXZI6&sharer_sharetime=1606295052446&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4961fe92d783e4d7a83cdbe14e62570de9c6a904144e61c605f3eb66f2004583a7acdb4f00be7a07d8ab515bca093d6bd7aecc865a29b3305a22c668d87153998ee832c1898d9af6a3797361d1821e14fcd9559fef68dc41d5117984bc38358ee2641f6d2cfa475e0d98f437619606d3be1c4fc36ffa1dc002972ac8d16e8752&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AcmBzXaA2nc5JoFWsmcG0W0%3D&pass_ticket=LyCvSHQLTZjbbdgJLER1AdDWY7Lel7P8Rlb9LXsq7uRi0rW0069LeieHb5JpWgCQ&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第3课
+
+### 古诗一首
+
+> <font color=lightgreen>**望洞庭**</font>    
+> <font color=lightblue>**唐	刘禹锡**</font>     
+>
+> 
+>
+> 湖光秋月两相和，
+>
+> 潭面无风镜未磨。
+>
+> 遥望洞庭山水翠，
+>
+> 白银盘里一青螺。
 
 
+
+## 2020年11月26日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天结束了第六单元内容的学习，本单元学习重点是阅读批注。说简单阅读批注就是一边阅读一边写。这是深入阅读的一种方法。孩子们的课外阅读要学习并运用它。第一步：一边阅读，一边思考，一边作记录。随时都可以作阅读批注，关键是引发孩子们深入阅读的兴趣。第二步：对批注过的地方进行整理归类：批注角度是什么？第三步：批注重点是从“不理解的地方”和“有深刻体会的地方”进行批注。第四步：积极和同学交流分享阅读批注。阅读批注方法的习得为孩子们的阅读多了一把钥匙，让我们用这把金钥匙开启深入阅读之旅！加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早课堂上我们学习了怎样深入地阅读。第一步的目标是读正确、读流利。看似简单的要求要真正达到还是需要一步一个脚印，认认真真，踏踏实实地练习。用这样的方法坚持练习下去，你们的阅读能力会越来越棒哦！另外，今早课堂上我们“逛了菜市场”，认识了很多蔬菜名称。陈老师发现你们需要再认认真真地去认识更多的蔬菜。利用这个周末时间在爸爸妈妈的陪伴下去真正的菜市场好好地认识蔬菜。这样你们不仅能够积累好多蔬菜的名称，更重要的是去体验在生活中学习语文的乐趣。加油！
+
+### 本日推文
+
+[【关注】酷炫！首批云南制造现代有轨电车亮相文山，游普者黑更方便啦 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzUzMDk4NDQ2Mg==&mid=2247606298&idx=2&sn=a7fb11e0a2c6b3bb5fc5582caa573b0a&chksm=fa4a1b7bcd3d926d093c8bc65b0289be9f1c44555f027d0a441b57820a94aa4b82941b0ee88c&mpshare=1&scene=1&srcid=1126WSwoXE7zTK4JH8TVe6He&sharer_sharetime=1606381425390&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=4961fe92d783e4d7f7fc7e8c2c080511ca39313f0d0eb48960518e0cb1a2ea126880edb50508f7228d8c0a89c47c50e148e77f0c92c0d79820a8419edc49402bfca81b1a46c1878c0c9fb1dc9ac77f27dd19506c06c810f388284cf266396ea15d70c29e4b88947fd6fed63d69575b09ddaa95e85212287ee864000e0a3519c0&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Ab99bpg5mCw5yJDvX%2Bm%2Fnqg%3D&pass_ticket=LyCvSHQLTZjbbdgJLER1AdDWY7Lel7P8Rlb9LXsq7uRi0rW0069LeieHb5JpWgCQ&wx_header=0)
+
+[有远见的父母，都在培养孩子这项能力 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzIzNjU1MzUyOA==&mid=2247527092&idx=1&sn=a9aa0c8a6753be46461af9aed6bde9b2&chksm=e8d43ee3dfa3b7f533de7040bab266304be84f3cca62bfbc5d923cc7293728a2b3ea09326e43&mpshare=1&scene=1&srcid=1124oYrRIAFP0OkA8hkFfEJT&sharer_sharetime=1606381493481&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=963daa410b850ca80c3a04edf071ce951bc0b476c8abaf460716727139fc27f6859b13b34961b3fdd56c8417a0f3659014939de91b759639cae80c08bf3647f9ebe97ceff54622e82f08bc0b33561113925c425a221a0fc07fde3afcc563d8cc132215f63eeda0338e7bf77a46320517557dd12066f888e390caa74fb3ddcff9&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AQehKiWrjSOicXWF0rBtmME%3D&pass_ticket=LyCvSHQLTZjbbdgJLER1AdDWY7Lel7P8Rlb9LXsq7uRi0rW0069LeieHb5JpWgCQ&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第4课
+
+### 古诗一首
+
+> <font color=lightgreen>**浪淘沙**</font>    
+> <font color=lightblue>**唐	刘禹锡**</font>     
+>
+> 
+>
+> 九曲黄河万里沙，
+>
+> 浪淘风簸自天涯。
+>
+> 如今直上银河去，
+>
+> 同到牵牛织女家。
