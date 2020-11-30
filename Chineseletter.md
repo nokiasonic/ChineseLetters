@@ -2751,3 +2751,40 @@
 > 如今直上银河去，
 >
 > 同到牵牛织女家。
+
+
+
+## 2020年11月27日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天下发了“第一至四单元积累测试卷”，这些内容以记忆为主。训练目的是：背熟，写正确。请督促孩子们认真改错。另外，孩子们复习第一～四单元的内容以“一类词测试”、“二类词测试”和“积累测试”为主，力争不写错字，消灭不规范的字。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天下发“积累试卷”的时候表扬了进步大的一些同学，希望你们再接再厉。同时也希望优秀的同学继续保持。你们知道：这些同学因为认真书写就避免了很多错字和不规范的字。他们已经体会到了：只有认真书写，就能提高质量。端正书写态度，认真书写，努力提升！加油！
+
+### 本日推文
+
+[人民日报荐文：教育好自己的孩子，是你最重要的事业！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAwOTEyMjU1NA==&mid=2650974128&idx=1&sn=18c86f999ae2f2948530fee379d57336&chksm=80926025b7e5e933af5ede2048b6a697946c0d20f5a568bf252991bdf41325b3a1c57731dc84&mpshare=1&scene=1&srcid=1126UyEQeP9U78GBuBuvsCev&sharer_sharetime=1606472774246&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=7d0169ea9b9c819f70314163e33fb331275e284ca31a541de57f7eb91335f8908101b2ebd60e8128431df0c52fdd213b05a09729e37b44709bb88ed53637329257c096168e1224ed5fe29c468cbad5e43b841c52273742ad6c98b12ae7bedd3db99be4018bf6ecc66eff64de1441e676b9d6fce7b48bb7d88f51a8345eaca381&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AenIWCzbV2ojsKYAZvjLm0o%3D&pass_ticket=IEs4H7sgeNJWnGbtw2H95aR53R16srjKf1CXsErsy7Qwusdpq0%2F3S%2BCBdaVxKy8w&wx_header=0)
+
+[像愿意信任孩子一样信任老师吧 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247495149&idx=1&sn=67306b89cb37c81229c44aa2eb620d42&chksm=f9432fb0ce34a6a69454b2c1f154c0be254fa4eb16fe75b12c4f81e668327826b86e262b1842&mpshare=1&scene=24&srcid=1124Fab81ggm5wXo9rajvi5F&sharer_sharetime=1606190348696&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=cmnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AS8J1cBSHQHRj6C9c4MDd4M%3D&pass_ticket=IEs4H7sgeNJWnGbtw2H95aR53R16srjKf1CXsErsy7Qwusdpq0%2F3S%2BCBdaVxKy8w&wx_header=0&key=0ce6e483c2c8fc2e21f59f47fc45652710cd8184df3a7a999d21d5b1a46d5543cb23a625aafb201f95f151615a8aa853fbea34b8be75a55d3a7f95f64b1ff78ea98fe69ab7516a4f32b58b99a4ebe723c2dc5c65fbda9639181d4e18ac0659d32c57d98d977cde3ba815a26d38251a58f2518dce5eaba99592e1ef99832e0821&uin=MzU0MzU2OTE1)
+
+### 每日一诵
+
+> 朗读课文第5课
+
+### 古诗一首
+
+> <font color=lightgreen>**赋得古原草送别**</font>    
+> <font color=lightblue>**唐	白居易**</font>     
+>
+> 
+>
+> 离离原上草，一岁一枯荣。
+>
+> 野火烧不尽，春风吹又生。
+>
+> 远芳侵古道，晴翠接荒城。
+>
+> 又送王孙去，萋萋满别情。
