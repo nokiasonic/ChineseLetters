@@ -2788,3 +2788,40 @@
 > 远芳侵古道，晴翠接荒城。
 >
 > 又送王孙去，萋萋满别情。
+
+
+
+## 2020年11月30日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天是11月的最后一天，转眼就是12月份了，我们即将进入期末复习考试阶段。后期学习期间我们一边学习新课，一边进行巩固复习。其中改错是重点。我和孩子们约定好：利用课余时间或课后在家进行改错。每天都有很多同学在放学前把作业放在办公桌上等待陈老师批改，也有一部分孩子从来不交或不改错。我和孩子们算过一笔时间账：就算每天有一节课专门进行改错，分摊到每个孩子上的时间连1分钟都不到。所以，改错作业就需要您认真落实，督促、检查，每天必不可少。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天下发了“书法练习（六）”，练习内容是教材后的“积累词语”。这些内容要做到百分之百的过关，请你们一定要重视！另外，从明天起，我们进入12月份的学习。我们一边上新课，一边巩固复习，请你们整理作业，分类管理。特别是有错的地方要及时改错，及时上交再次批改。从今天起，请你们把作业改错当作重点作业认真完成。加油！
+
+### 本日推文
+
+[坚持运动和不运动的孩子，为什么差距越来越大？ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzI0MjQ3ODkyOQ==&mid=2247500654&idx=1&sn=8292ccc073b10ef0040b61a4ac563020&chksm=e9793950de0eb046a3e95b5ddf7e4885bfa175c929cc9c00ef6e8db954c6a3ee3b28ea525a03&mpshare=1&scene=1&srcid=1129GjDSCAVegGuhEiXRux8j&sharer_sharetime=1606728135966&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37cd48f1423afdbfbff9b84de46109384805d6bd22755897084463914eb3f9369cc7c196d310dc8d11062cdc2400d1ff41d67e1dfaff510b607651bcbd273c8d9e0535ac97f81e5087fc7284b972759ac3cc2748236c74446d6763f791099cb6517bc65670774ecb7de239c60268f5dc68f21eb182d1429294&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AabP9QcCsW1NSNxK7FLrSNw%3D&pass_ticket=sRWyBph2wLEbhEr7fyBptW4YWXZPPuDm3Jtn%2BUP1UgZ6QjYgH6oipDxDjSxvyI9T&wx_header=0)
+
+[最好的家庭教育：父亲是榜样，母亲有温度 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzI2ODA0NjkwNQ==&mid=2651817935&idx=1&sn=d39f3ab2a82b9d6edb3107377444072d&chksm=f10ea099c679298fb8b423a8b9821ea110b8aff902ac00cbcd9d77f89e0c35cf7b1fbd41c31b&mpshare=1&scene=24&srcid=11302WDh2heLszfZesdJhILb&sharer_sharetime=1606717404520&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AcvccQhAhf%2F0jpF1CR6yPf4%3D&pass_ticket=sRWyBph2wLEbhEr7fyBptW4YWXZPPuDm3Jtn%2BUP1UgZ6QjYgH6oipDxDjSxvyI9T&wx_header=0&key=6d84a474470f9f3764c302c46f9659c25e91486a32de6cac574c4950654c9974137bf9582cfbe7f2e9057b05b7c201325084128f91545ac42f7445e780b107ac8e834f633845a01fc5286a4abc95ce906b01a2a86893b600afaaf1098fbc2248216879e4bf8de9a48910565192c8b6b94e27734f397e6d59224ec0fac0d311f2&uin=MzU0MzU2OTE1)
+
+### 每日一诵
+
+> 朗读课文第6课
+
+### 古诗一首
+
+> <font color=lightgreen>**池上**</font>    
+> <font color=lightblue>**唐	白居易**</font>     
+>
+> 
+>
+> 小娃撑小艇，
+>
+> 偷采白莲回。
+>
+> 不解藏踪迹，
+>
+> 浮萍一道开。
