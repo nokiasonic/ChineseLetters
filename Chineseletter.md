@@ -2825,3 +2825,47 @@
 > 不解藏踪迹，
 >
 > 浮萍一道开。
+
+## 2020年12月1日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早批改完了1号本，这是写一类生字的作业本。暑假通过自主练习书写活动，孩子们已经完成了1—16课的生字书写内容。开学后，我们继续开展自主学习生字的活动。到昨天为止，本册教材中的一类生字全部自主学习完了。通过这一段时间的学习，孩子们在学习生字方面有了一定的进步。书写生字前，学会观察生字，分析字形结构，用自己喜欢的方式进行记忆，之后再动笔练习书写。教材中的很多生字是没有注音的，这就需要孩子们借助预习要求，自主练习读音，通过查字典正音。这也就是孩子们第一次和生字见面的过程，从这个环节就可以避免写错字。从今天起，请你们认真查看孩子的作业本，关注书写的数量（共 20 课）、质量和改错，并对作业进行评价，发现问题请及时整改，请在本周日下午5点前私信反馈给陈老师。加油！
+
+反馈格式要求：
+姓名   学号  
+1.完成数量    （等级？优……）
+2.完成质量（等级？优……）
+3.改错（等级？优……）
+4.整改内容……
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早下发了1号本，请认真查看自己完成的数量和质量，再逐一检查是否都完成了改错。从今天起，做到自检自查。发现没有完成的内容，或是没有改的错，请自行整改，并于下周一早上上交参加优秀作业的评选。另外，今早我们复习了第1课，请按照复习方法在家再巩固复习。要求：1.读熟一类字词。2.读熟二类字词。3.读熟积累词。4.有感情地朗读课文。加油！
+
+### 本日推文
+
+[这些新规，今起实施！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658637059&idx=1&sn=5403795320675038fb411a4630bbbf2e&chksm=bd5f416c8a28c87a0128a8d65c93486fdad84d6e0e26638a06629086036c38bcfd4e04b965e5&mpshare=1&scene=1&srcid=1201kMTf4ZlUw1jnDCA4ZUSA&sharer_sharetime=1606813443620&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14d8e919b9bf1d9632850322db54d2a235533e44647ca1e615ff62003bce7b07ea488a72cef1337b64f177c036e17670e87ae717af5d2db466283c3ff3b8af1f8b7cc495242a154b0a779d55aecff0e5fcc9d610eb6ec8ede54d66ed98af1d9528374b6284367c2dc650d8447c19c3f0449053f7500b3028ecd&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AappEd%2B1gTiBy4%2FP7RmJh9A%3D&pass_ticket=sRWyBph2wLEbhEr7fyBptW4YWXZPPuDm3Jtn%2BUP1UgZ6QjYgH6oipDxDjSxvyI9T&wx_header=0)
+
+[放学后，这三句话父母一定要问！尤其是第一句！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzIzNjU1MzUyOA==&mid=2247527449&idx=1&sn=9b8bd16e1866b8de42216ea1c0e6e638&chksm=e8d4384edfa3b1582ed1c1242fc98c2c80805012546d9e55faaaa3a1b2c274a6cf322e56eab4&mpshare=1&scene=1&srcid=1130AQ4HVN39K4LSGUdfcUkK&sharer_sharetime=1606813502714&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37e9097c967a5a2dfd9b025e385865ae481f2db4fa0c399d560bf8feac500bf17640e3ec5329a5aa9e11d95953ad1310eedd05d1306005a41c32e1f99e3e7c6f7305fa713507e4502d934c5b19d0a2dd2f0afa98f00ff43fa3e0ce3d03d8355db10868c073f7956154787b99836fbc531c262539b1d8527026&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AaF1xwyFS3ou5jKj361zHcI%3D&pass_ticket=sRWyBph2wLEbhEr7fyBptW4YWXZPPuDm3Jtn%2BUP1UgZ6QjYgH6oipDxDjSxvyI9T&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第7课
+
+### 古诗一首
+
+> <font color=lightgreen>**忆江南**</font>    
+> <font color=lightblue>**唐	白居易**</font>     
+>
+> 
+>
+> 江南好，
+>
+> 风景旧曾谙。
+>
+> 日出江花红胜火，
+>
+> 春来江水绿如蓝。
+>
+> 能不忆江南？
