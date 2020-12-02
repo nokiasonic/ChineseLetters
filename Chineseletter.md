@@ -2832,12 +2832,12 @@
 
 亲爱的大朋友们：下午好！今早批改完了1号本，这是写一类生字的作业本。暑假通过自主练习书写活动，孩子们已经完成了1—16课的生字书写内容。开学后，我们继续开展自主学习生字的活动。到昨天为止，本册教材中的一类生字全部自主学习完了。通过这一段时间的学习，孩子们在学习生字方面有了一定的进步。书写生字前，学会观察生字，分析字形结构，用自己喜欢的方式进行记忆，之后再动笔练习书写。教材中的很多生字是没有注音的，这就需要孩子们借助预习要求，自主练习读音，通过查字典正音。这也就是孩子们第一次和生字见面的过程，从这个环节就可以避免写错字。从今天起，请你们认真查看孩子的作业本，关注书写的数量（共 20 课）、质量和改错，并对作业进行评价，发现问题请及时整改，请在本周日下午5点前私信反馈给陈老师。加油！
 
-反馈格式要求：
+反馈格式要求：  
 姓名   学号  
-1.完成数量    （等级？优……）
-2.完成质量（等级？优……）
-3.改错（等级？优……）
-4.整改内容……
+1.完成数量    （等级？优……）  
+2.完成质量（等级？优……）  
+3.改错（等级？优……）  
+4.整改内容……  
 
 ### 学生寄语
 
@@ -2869,3 +2869,38 @@
 > 春来江水绿如蓝。
 >
 > 能不忆江南？
+
+## 2020年12月2日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！非常感谢你们的支持！昨天留言“评价1号本”的信息，今天就收到一波孩子的评价。我尽力关注到每个孩子，努力帮助他们对“改错问题”进行整改。后期会不定时的安排放学后的时间对“疑难问题”集中整改。另外，每天的作业之一  ——“每日一诵”，也请你们督促孩子们认真完成。朗读课文不仅是对课文的复习，更重要的是培养孩子们的语感。从平时孩子们的课堂发言，或书面表达中看到了坚持大声朗读课文的孩子在悄悄的发生变化。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！从昨天起，我们每天复习一课，复习内容不仅要把一类词、二类词、积累词读熟，还要模仿陈老师那样有感情地朗读课文。朗读课文的方法就是“放电影”。另外，我们还要安排时间“查缺补漏”，特别是改错不过关的，一定耐心而认真地去完成。陈老师说过“改错效果最好的方法是面批”，希望你们重视起来，像重视考试那样重视每一次作业嘎！加油！
+
+### 本日推文
+
+[中小学生减负、开展课后服务等，您关心的这些事儿，教育部一一答复！ | 特别关注 (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5OTU5MzcyMg==&mid=2653244020&idx=1&sn=dd9a3504d4a559a989dc90171f7d6ead&chksm=bce8f9e18b9f70f7c00acd78f06b9d998855acb4efce62a175b71e05752f18a85d38cca81819&mpshare=1&scene=1&srcid=1202Pu6ZXNvpRLFfYqdgD5o2&sharer_sharetime=1606899835170&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=56eb0c6e1119bb3d11083bec24377f1724f3d06e6f5ca4802ac3e0f6a8a6704aa93a25729287e7e677e950067e496926620da499814a72f10d1e7043e804445b1b171c3cff65862ca796ae8b22b68653200717fbbcec77835bbe69a7399f6ec14be4b05801bff0f451573bc69e6ccbf1f297b883898c52b19ba1ceeb85691ffb&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Acj07KDeK%2FUMtM5omCTgM74%3D&pass_ticket=Vj2b9wRhIo2wzBESDAn4QQd49JppSSuHuqsZ2qRHLTxGvYcB%2FrxNMIcL2u0Z9nus&wx_header=0)
+
+[郎平一句话点醒无数父母：千万不要让孩子活成一座孤岛 | 育儿 (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5OTU5MzcyMg==&mid=2653244020&idx=2&sn=3f9935813e1b63ed4c8eba1a2116186d&chksm=bce8f9e18b9f70f767fa01b43dac9879884091e547ef8f4fa8bde7145624db2ce60bfc955a9c&mpshare=1&scene=1&srcid=120241nmvBXx8KDYghsuK63W&sharer_sharetime=1606899846620&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37f1cc5ba77c0c836704456758e5e3542ffcf8e8fd60a563b0d0b6744b6adcfbe15419dbe94cdc5445364171c5a6085a36606f1904613556de7595aefdc3f9e3659b3de3e8436635058119794cdbf09c39106a53386ecc158f3ec69e1954055803866639eb6b96e4bfcb5f0bbecc8be012d7f8da917604cc4d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AT5u39mfR7%2FSYKjURGyFGx8%3D&pass_ticket=Vj2b9wRhIo2wzBESDAn4QQd49JppSSuHuqsZ2qRHLTxGvYcB%2FrxNMIcL2u0Z9nus&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第8课
+
+### 古诗一首
+
+> <font color=lightgreen>**小儿垂钓**</font>    
+> <font color=lightblue>**唐	胡令能**</font>     
+>
+> 
+>
+> 蓬头稚子学垂纶，
+>
+> 侧坐莓苔草映身。
+>
+> 路人借问遥招手，
+>
+> 怕得鱼惊不应人。
