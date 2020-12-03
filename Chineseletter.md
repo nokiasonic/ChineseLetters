@@ -2904,3 +2904,38 @@
 > 路人借问遥招手，
 >
 > 怕得鱼惊不应人。
+
+## 2020年12月2日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！我们本周走进了第七单元的学习，学习重点是——关注主要人物和事件，学习把握文章的主要内容。今早学习了22《为中华之崛起而读书》，重点一：把握文章写了三件事，每件事主要写了什么？方法是：抓住事件的“六要素”来概括每一件事的主要内容。从课文中找出相关的词句，连词成句就是这件事情的主要内容。重点二：借助课文中写的几件事，理清关系（本课先写结果，后写原因），就可以概括这篇文章的主要内容。这两个知识点是本年段最重要，且最难的。建议：引导孩子们在阅读写事情的文章的时候练习用这样的方法把握文章的主要内容。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早学习了22《为中华之崛起而读书》，学习进度慢一些，关键是学习并思考本课的重点：怎样关注人物和事件把握文章的主要内容，这是很重要并且也是很难的知识。从今天的课堂反馈中我看到了积极思考的孩子总是思维活跃，也有孩子被陈老师不停地提醒就是“不理人”。建议你们每天做到复习，真正地把当天学习的内容进行巩固。加油！
+
+### 本日推文
+
+[倾听着的教育 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzI5NjQwMzU2OA==&mid=2247484337&idx=1&sn=3185b9f429e66334d1c527d9d320f03b&chksm=ec4594aedb321db8d91d7c2caacc2dffe60b551c261315b9b32ff74cf2f0c4897d5bd1f7e8b2&mpshare=1&scene=1&srcid=1203ZtnHI7ukv50V5VDpmZUk&sharer_sharetime=1606986039513&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=606f1fc5db59cbfcae7abf5c8d075bcc37ac02269f9d177510d2c7b9ec51af432cd05d87c8e1deede6b14c523ffe9c6d62da6a722c7b9764c6ae52d8617940fc7928a857b650740c8599799ad003b22166651050638ecc3b07cf5af227e54ec79ae05d40940af1d658e2d2bd70ca480a134ced5c24972292d3486289fece1aad&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Ab8uGrZX7sSBwp5bayNzy2A%3D&pass_ticket=Vj2b9wRhIo2wzBESDAn4QQd49JppSSuHuqsZ2qRHLTxGvYcB%2FrxNMIcL2u0Z9nus&wx_header=0)
+
+[过去5年已致42人死亡！云南省疾控中心再发提醒 (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5NDg5MzMwMQ==&mid=2671219599&idx=1&sn=e84d2a0c6839c25838ce19052f5c7206&chksm=bc43ef158b3466036b4b8bda14f1492bb43463fca5240093ca7c05b5ba7b2cabc7f394e6fee8&mpshare=1&scene=1&srcid=1203LjqGgWmulEYKzKySbdez&sharer_sharetime=1606986061188&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=56eb0c6e1119bb3d3da8ef6e50497ba6ca9fec59599e37f12cf6182b6f59995ac145579601d8b87649e85408b171d1cf8cbbf16f251c189f98e4d83964f2b051d62ff046285a3dc1b7bd8354369b839a86a6236f8a789981fd3876a7f6385c87aa7091df302811fd4c2f4c5b0fdc8036d13b94afe10b80db603b9ba2f03d105a&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AeF5%2BcHzELjMhvtdSMEMKuI%3D&pass_ticket=Vj2b9wRhIo2wzBESDAn4QQd49JppSSuHuqsZ2qRHLTxGvYcB%2FrxNMIcL2u0Z9nus&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第9课
+
+### 古诗一首
+
+> <font color=lightgreen>**悯农**</font>    
+> <font color=lightblue>**唐	李绅**</font>     
+>
+> 
+>
+> 锄禾日当午，
+>
+> 汗滴禾下土。
+>
+> 谁知盘中餐，
+>
+> 粒粒皆辛苦。
