@@ -2905,7 +2905,7 @@
 >
 > 怕得鱼惊不应人。
 
-## 2020年12月2日
+## 2020年12月3日
 
 ### 家长寄语
 
@@ -2939,3 +2939,38 @@
 > 谁知盘中餐，
 >
 > 粒粒皆辛苦。
+
+## 2020年12月4日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天因开展活动课被换在下午第二节了，看到孩子们一脸的疲惫，我临时作了内容的调整。学习不是一件快乐的事，但除了学习，没有比它更快乐的事了。我们一到周末也不知不觉地生发出归心似箭的感觉，我们累了，孩子们也累了。周末了，大家好好休息啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！好长时间下午没有和你们上过课了，因为我下午都在少年宫上课。今天的课堂上发现你们学习的热情不高，也就临时作了内容的调整。周末了，好好放松，同时也要认真完成作业。从本周起的周末，都会布置改错和复习的作业。合理安排时间，自主管理，特别记住完成“11月份评价”嘎！
+
+### 本日推文
+
+[云南省教育厅召开初中学生体育音乐美术考试方案新闻发布会 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzUzMjkxMjUzOQ==&mid=2247496076&idx=1&sn=84817b21a6578b17b10ea535b55f703e&chksm=faaeb178cdd9386e32cecc3e7ec53465848abfbb28e2b3758e730b13814973f2a829b495cee7&mpshare=1&scene=24&srcid=1203gKHjCgz0uHeymLUPCTer&sharer_sharetime=1607008440302&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=cmnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=Af3pTmmzAVAHkqktdrR2hS8%3D&pass_ticket=aymdXA%2B%2FwuKY0e2n6E7TC9sqMtnA5%2B33WgHlVkO9dQmjLD3pY4uKQ9WLnBoIgovf&wx_header=0&key=54253d61e149ca8012873f67a4ec99d038d6709291a01b9a34b0aabafbdc24c80a6b46f2951f68e1ed4dfd13b4b24b7df03815a2226eb8d554c19cb0b7d47e554b769b47b2466982c3772ee3bb11e812881308320d617482cd599ac3d8542b3219ed04f75e0d33c9ef6c0e344be6578fe25d01717faa3c9cae2cbb2a5e4c91c6&uin=MzU0MzU2OTE1)
+
+[真正影响孩子一生的不是中高考，而是四、五年级！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzIxMDc0MjUzMA==&mid=2247491631&idx=1&sn=82f7c3653d762bc96c2f97397f3da735&chksm=975d5c42a02ad5543012ddfda947d249d40340995d36026504b1e3f94758481ad49ba167daef&mpshare=1&scene=24&srcid=1204Rb9gUr40DHiaU1534Aqi&sharer_sharetime=1607036033073&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=cmnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AXF%2BRTSdwiNgVgzlGzJgl%2F0%3D&pass_ticket=aymdXA%2B%2FwuKY0e2n6E7TC9sqMtnA5%2B33WgHlVkO9dQmjLD3pY4uKQ9WLnBoIgovf&wx_header=0&key=56eb0c6e1119bb3dd1eac0b69575ce47446c16db38fba60a59d0f94ca3b7579dd6068bedbc1ca15bf5782373753b5f61bf7feea5b60e70e004fa125a9fb320174963363335f47275e39fd18ad56d4bf1eca2054c06c74967f7939bc0e895f813c13183448c83e9e79479bdeca7c444e963d9fe8c8371e29ba70b7e460b3eea59&uin=MzU0MzU2OTE1)
+
+### 每日一诵
+
+> 朗读课文第10课
+
+### 古诗一首
+
+> <font color=lightgreen>**悯农**</font>    
+> <font color=lightblue>**唐	李绅**</font>     
+>
+> 
+>
+> 春种一粒粟，
+>
+> 秋收万颗子。
+>
+> 四海无闲田，
+>
+> 农夫犹饿死。
