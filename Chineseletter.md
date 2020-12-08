@@ -2974,3 +2974,38 @@
 > 四海无闲田，
 >
 > 农夫犹饿死。
+
+## 2020年12月7日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早对孩子们的1号本评价进行汇总登记，发现有一部分孩子没有完成作业情况评价，并且也没有上交1号本备查。请今晚务必落实检查！本周的重点还是1号本的整改。请完成整改的于第二天早上上交作业本，最晚在本周五前完成。对于没有完成的，我会在本周五私信您！或有困难的请私信我。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早有很多同学按照要求上交了1号本，经过检查，发现大部分孩子改错认真，改错过关了。也有同学存在一些细节错误还没有通过。请再次自检自查，完成的就可以上交，最后上交时间是本周五。请认真按要求完成。改错作业是从今天起最重要的作业，请一定重视！加油！
+
+### 本日推文
+
+[今日大雪！大雪的这些常识，带着孩子一起来了解吧！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzI5MzU5NjcyMQ==&mid=2247529341&idx=3&sn=747eb7594518b4039e7cb64cc2220def&chksm=ec6d8823db1a0135390c3e4c58748b89d9b4f21dcc2de2a80b6e3dd020abbe111d9e05aa18ea&mpshare=1&scene=1&srcid=1207SqewGj5n4FPAXQgag3yl&sharer_sharetime=1607331872158&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=54253d61e149ca80f1a2f8b1c4f8dfd7d7c30817b47a3ad452e3b07362b9c6b28d5591dfdc4aba7ffac0c5edefc8ceddd15624a959308ce77e2adff8852f26128deeb6b440c5c8012c2aa40cd55023ff4fc64a0be37a9195b7a02609ceb83c53ff3453c50c4a0333c8dec0287d8ae3a4382d6509b75461a15aa41b5f9d633adb&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AViC8ETuB%2FRBIc%2FONOPwFR8%3D&pass_ticket=LRlQKamaT7YHC96bC17lvlW1doH3unX0oigF2fHlMGmNc7bNjLVyzBYrsfIyugO%2F&wx_header=0)
+
+[要让孩子知道，努力学习是一种责任！（强烈推荐） (qq.com)](https://mp.weixin.qq.com/s?__biz=MzU4NjA1NjQ3Mw==&mid=2247692323&idx=2&sn=9d5ee5c4ed4d62bf23f83a37fad5258a&chksm=fd8ca655cafb2f4380db79b277bc68aa7f3a7078f37d24768df678aa7be6c2b78848b19f70b5&mpshare=1&scene=1&srcid=12053TtL057MGaKjRW6e4HuL&sharer_sharetime=1607331889604&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f376bc4c283a8738aeb4cc9edc7d3ba25e53df68d6918323c282dba03df9b66ce13607f92f9ee156ce075022cc615883fc18de31283479d3e8659828401ae6fe0a98e0de5d985972e689128897c01b59c84a6db7faccd2374a4e6ff592f8ff8c3e108d0c277a56a932dd630754c2a995c73a6ee1857ff052884&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AYcGN1JtIWV%2FRLwgAjHpAIw%3D&pass_ticket=LRlQKamaT7YHC96bC17lvlW1doH3unX0oigF2fHlMGmNc7bNjLVyzBYrsfIyugO%2F&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第11课
+
+### 古诗一首
+
+> <font color=lightgreen>**江雪**</font>    
+> <font color=lightblue>**唐	柳宗元**</font>     
+>
+> 
+>
+> 千山鸟飞绝，
+>
+> 万径人踪灭。
+>
+> 孤舟蓑笠翁，
+>
+> 独钓寒江雪。
