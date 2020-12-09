@@ -3009,3 +3009,73 @@
 > 孤舟蓑笠翁，
 >
 > 独钓寒江雪。
+
+## 2020年12月8日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早学习23《梅兰芳蓄须》，学习重点是关注人物和事件，学习把握文章主要内容。孩子们在阅读批注的时候关注围绕人物写的事件，每一件事的内容扣住“六要素”的相关语句，最后把这几件事用恰当的“连词”连接起来就是文章的主要内容。这是重点也是难点。借用这样的方法自己学习课后的《难忘的一课》，明早课堂上还会继续巩固复习方法。另外，昨天以微信方式给全班每一个孩子进行了“11月份的评价”，评价内容第一是孩子做得好的方面，或是进步的方面。内容第二是需要努力的方面。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！昨晚以微信形式对你们11月份的学习过程进行了评价，陈老师很高兴地看到很多同学在原有的基础上有了进步，有一波同学一直表现优秀，也有几个同学一直“原地踏步”。希望有进步的你们继续努力，争取下个月还是优秀。特别表扬一直表现优秀的你们，继续保持优秀的习惯。还要提醒“原地踏步”的你，快快努力追赶上来，我们一直在等待，一个都不能少！一起努力，一起优秀！加油！
+
+### 本日推文
+
+[国家卫健委最新通知！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658639640&idx=1&sn=2711773a2a0b87f455deee9170f433f4&chksm=bd5f4b778a28c261a1d9fc4b5c4f40b2894f6d584a14889e7fd05491fba624204d9ac041a338&mpshare=1&scene=1&srcid=1208iTuimRKUgljgoRL1Ttp9&sharer_sharetime=1607418086996&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14dffaaa9a90b69ce1d320b8d703b44e422cca2de5332c3c8b449babd8616342b28cc6f6cbdb1d6ebd32b262a349cdccb077278669ae0a765c96125c7c8e2bf15447e1cef7b02b530088762fe729012934da01cb042a6d327f8b690375c3567b72041a60d9cfe717d6e96896dee52cff6b41ece72afd3251c25&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AWbDTeSHAZplTk5tvfRLeuQ%3D&pass_ticket=88Z%2FjNAw4bcr1hySkV17C%2FwYoWTQeEmOnpT%2BWI%2FucIU8TJtjmxebsViB7npiL%2Fma&wx_header=0)
+
+[耶鲁大学教授：掌握1-14岁孩子成长密码，真正了解自家孩子！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzIzNjU1MzUyOA==&mid=2247527878&idx=1&sn=bcde883f46c6ed85a369abefa02167b6&chksm=e8d43991dfa3b08768033719bbe2f0b2d7dfbb3e882cfbfc5443858e61bb6191bbd671597606&mpshare=1&scene=1&srcid=1207vcWmP8wUadXDl4rrVpbR&sharer_sharetime=1607418166422&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14d4a3ce0e900c69636897eb03c143237cb72823f9bfae94131a3560767f843b4f75347109c640ddd948880ef840f660c69b38483e81721673be4e3f39d27e146c0aeb52628d7777906fb95108c8a912addb237a14f08d560cf05db7fd91576693f6ebdc70568c8395ac71a793f4ed36a457b32cdb296de8c83&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AbkAoZE8otzMDyO3rZNaYYQ%3D&pass_ticket=88Z%2FjNAw4bcr1hySkV17C%2FwYoWTQeEmOnpT%2BWI%2FucIU8TJtjmxebsViB7npiL%2Fma&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第12课
+
+### 古诗一首
+
+> <font color=lightgreen>**寻隐者不遇**</font>    
+> <font color=lightblue>**唐	贾岛**</font>     
+>
+> 
+>
+> 松下问童子，
+>
+> 言师采药去。
+>
+> 只在此山中，
+>
+> 云深不知处。
+
+## 2020年12月9日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早学习了24《延安，我把你追寻》，这是一篇诗歌形式的略读课文。课堂上对学习内容补充了一些资料，这样就可以帮助孩子们更好地理解课文内容。孩子们以后碰到这样的课文，可以借助“阅读提示”，运用阅读批注的方法，同时还可以查找相关资料，就可以自主学习课文了。今天家庭作业中的一项内容是抄写诗歌，目的是让孩子们掌握诗歌的格式要求，初步感受诗歌，以后我们还会学习诗歌创作。另外，近几天看到孩子们积极改错，认真改错，也希望你们再次检查1号本，并提醒孩子们本周五早上上交做最后一次登记。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天学习了24课，这是一篇诗歌。今天作业之一——抄写诗歌，请按要求认真完成。另外，今早表扬了一波积极来办公室改错的同学，也希望你们积极改错，认真改错，请在本周五早上上交1号本作优秀作业的评选。另外，我们每天抽了一定时间进行课文朗读指导，请按要求在家自由练习。这样不仅复习了课文内容，还帮助你们提高朗读能力。加油！
+
+### 本日推文
+
+[新身高！8848.86米！ (qq.com)](https://mp.weixin.qq.com/s?__biz=MzAxNzE1OTA1MA==&mid=2651739184&idx=1&sn=f99934cf744f44b6832eb86e72607cd4&chksm=801332d5b764bbc388f1197dbb9080d16eb95048155206ca9f1f630c8bf9357c4739dbd76f77&mpshare=1&scene=1&srcid=1208SYKs4sJ1VmtzXkk2JcY7&sharer_sharetime=1607504487912&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14de7058c82e7a08ec89e83a78fef734ce71631ef2f9a6c7c99e492204d52ad12aa44ac7dc0e5500c05aeb4664e4387c10011c19aca818d54d58ca24f813ab1bba0aec301855d6729c9c5f0cd488141f64ef032e34f984907b774ed79f76cee145a1e74bb2b18cccd3b1cbdf4b553769edc6b1d192d1098ea2e&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AY%2BgVv27CPb4%2B3ApwYqWbdA%3D&pass_ticket=88Z%2FjNAw4bcr1hySkV17C%2FwYoWTQeEmOnpT%2BWI%2FucIU8TJtjmxebsViB7npiL%2Fma&wx_header=0)
+
+[荐读｜关于陪伴孩子，家长需要知道的五个“坑”和五种优质陪伴 (qq.com)](https://mp.weixin.qq.com/s?__biz=MzU1OTA2MDQ3MQ==&mid=2247491243&idx=2&sn=63eed617d188d1b002de2f991f469c84&chksm=fc1c5a33cb6bd32556d4abf529c10ee72396f25010962937f12265b4445aa69b918cd05df387&mpshare=1&scene=1&srcid=1209yC7kknOpptMuXbef4o3u&sharer_sharetime=1607504541147&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=606f1fc5db59cbfc309a374267ea093b21d4bac849665cce6113ccc4815a8258be6f1eec942d37e3e61fd4855cd38095976f7b4cf5b5670f386c2d100e253e603d7584fec582db4d51e8eebe56d2288526ded34d04ffa58f6a2c363ef0093480d189400faf5d723b2b50b2765fefc4f780da1a69615f6730786466030db31cab&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AfUGebuYxeB628Gt2QTcfaY%3D&pass_ticket=88Z%2FjNAw4bcr1hySkV17C%2FwYoWTQeEmOnpT%2BWI%2FucIU8TJtjmxebsViB7npiL%2Fma&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第14课
+
+### 古诗一首
+
+> <font color=lightgreen>**山行**</font>    
+> <font color=lightblue>**唐	杜牧**</font>     
+>
+> 
+>
+> 远上寒山石径斜，
+>
+> 白云生处有人家。
+>
+> 停车坐爱枫林晚，
+>
+> 霜叶红于二月花。
