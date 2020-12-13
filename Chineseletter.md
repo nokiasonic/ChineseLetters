@@ -3079,3 +3079,81 @@
 > 停车坐爱枫林晚，
 >
 > 霜叶红于二月花。
+
+## 2020年12月10日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！第七单元的内容学习完了，本单元学习重点是关注人物和事件，把握文章主要内容。每一篇课文的学习侧重点有所不同，今天进行了整理复习。概括文章主要内容的方法共有五个。方法一：借助文章题目。方法二：弄清楚事情的起因、经过、结果。方法三：先弄清楚每一件事讲了什么，然后把这几件事情连起来。方法四：给课文分段，概括段意，再合并段意。方法五：借助文章中的关键语句或段落。其中，方法四是每一课《预习案》中的特定预习内容，课堂上都会通过提问落实。方法五是从上学期的课文学习中潜移默化地渗透过。今天课堂上，我们对阅读批注进行了再次训练，也希望孩子们从课外阅读方面进行巩固复习。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今天学习了“语文园地”，其中重点之一是掌握概括文章主要内容的方法，请你们从课外阅读中加强巩固。还有一个重点是体会反问句和陈述句在表达效果上的不同。也就是之前期中考试中的反问句和陈述句的互改。通过不同形式的对比读，你们要真正地去体会这两种句式表达的意思一样，表达形式不一样的特点。更重要的是在情境中去体会，去掌握。还可以找出类似的句子，运用对比读，加深体会认识。加油！
+
+### 本日推文
+
+[择校热、课后“三点半”、学生“减负”……基础教育改革发展这样“解题” | 特别关注](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651555021&idx=1&sn=dcd46fc1129ff9aadc79768bea29d4f9&chksm=80347d0cb743f41a0416723e47c5445b17893413806b43b52792737d022c4fe807a4ae6fde7d&mpshare=1&scene=1&srcid=1210ozKP6wAVV1nNFBeXB5o2&sharer_sharetime=1607592554774&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=56eb0c6e1119bb3dc035474bf84f006a2c63f0821957e2f2e2735f98eca382eeb938d0360c1b1c057b5f34f3f9f29e22968cdd2553b16ee858ef942a6bd5b52a152b0dcc92b74d0cf29e3a3d150f699475eafcdbf1c931b445771cc8c7d732306aaac177d1db346d88e6b0b1eafa23f54fff3fa04a0faf06b63c25973a06c5fc&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZq2Itq50i765%2BhzZSCsOWI%3D&pass_ticket=Rjfi06IWYAf7CLFoxl8NRzB9%2Fz24GRBXYt6%2FA1O%2BuAeEZFKuNuiEzk3kB9VfVCMa&wx_header=0)
+
+[孩子在学校做作业很快，为什么在家就不行？](https://mp.weixin.qq.com/s?__biz=MzI4NDYxNjAwMA==&mid=2247510732&idx=1&sn=0155729fc0bfc0ad24aba4b2ced54a2b&chksm=ebfa5ee3dc8dd7f5a377b7da4eb6475be2e79b2e2df449f933b7eede7490e357dd37c326f03f&mpshare=1&scene=1&srcid=1210y83QTdAUQh5Au4mAN90e&sharer_sharetime=1607592567226&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=54253d61e149ca801dc28df158f144b58dbdbd37e2601e3cc3b6cc20af7b76379721eb7965c4c48b11f3893ef8f396b7b143cb60dbfc8587995c7f0f06f15291f5164f4cd387e77b96dfc6583408cac7bf08d3e682f0e1ff0aaa83c870bd70bb9bae9e60a084972fe34a373bbf307bbc7eb0adddae350c456616ef7d35a4213d&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AZ5q8sFQ6u8NNijgZJVEaFI%3D&pass_ticket=Rjfi06IWYAf7CLFoxl8NRzB9%2Fz24GRBXYt6%2FA1O%2BuAeEZFKuNuiEzk3kB9VfVCMa&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第15课
+
+### 古诗一首
+
+> <font color=lightgreen>**清明**</font>    
+> <font color=lightblue>**唐	杜牧**</font>     
+>
+> 
+>
+> 清明时节雨纷纷，
+>
+> 路上行人欲断魂。
+>
+> 借问酒家何处有？
+>
+> 牧童遥指杏花村。
+
+## 2020年12月11日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！又是周末时间了，看着蓝天白云，心情舒畅极了！周末时光是你们亲子相处得最美好的时间，你们一定要带孩子们出门走走，看看，这也是亲子升级的最有效的时间。另外，请对孩子们的《查字典》作业进行评价（私信反馈陈老师），
+
+要求：
+
+1.共完成      课，等级       。  
+2.完成等级        。  
+3.自检自查等级            。  
+
+并提醒孩子们下周一早上上交作登记。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早带领你们对《别董大》一诗作写作特色方面的学习，并要求你们把学习到的方法运用到今天的《仿写古诗》作业里。另外，请利用周末时间整理作业，记得把《查字典》作业做好自检自查，并在下周一早上交给陈老师作登记嘎！加油！
+
+### 本日推文
+
+[香港特区政府深夜宣布！](https://mp.weixin.qq.com/s?__biz=MjM5NzI3NDg4MA==&mid=2658640287&idx=1&sn=3e85eff60473ea41002f5f9dcfaacf16&chksm=bd5f75f08a28fce62b3d38526108283e6ac01bef65c0bfcb599a8f83f10e7f6e87d963bc309f&mpshare=1&scene=1&srcid=1211V1WJbvaNsmIBFyecAy4E&sharer_sharetime=1607677467696&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14d72724371cec405f6b57a2f33ebe500420ea43c3486781e93be287c3eabc49b82fc81bbbe9e6db078e96b9fa74437e9ae75db9adcb9f70469dac83d847cd7e493a60d47415b9893ba7911d9c418ce906494e468e1dfecc3a92f37d149fc625bebb5e73e6868f88eda15b4eb53bd4f6853cac0f3fc5184756f&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AcJHQandNZPquBRlb%2FEH8TY%3D&pass_ticket=Rjfi06IWYAf7CLFoxl8NRzB9%2Fz24GRBXYt6%2FA1O%2BuAeEZFKuNuiEzk3kB9VfVCMa&wx_header=0)
+
+[人民日报：孩子，希望你能遇见一位手持戒尺、眼中有光的老师](https://mp.weixin.qq.com/s?__biz=MzI4NDk5MjA2Mw==&mid=2247487542&idx=1&sn=fb8938ccbde2406a499df3cbf29682aa&chksm=ebf3a766dc842e70ed562adbf5e62e7bb7815cebe0304cd6866bcdf2db5d0f7bda46dadc387c&mpshare=1&scene=1&srcid=1211HEQpSOXo76Xae8h7O6kX&sharer_sharetime=1607677495690&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f372bd2d40f39e45e8a048cc8e7e76f1de89c839ec9cd37366573053be1b51cb336ecd950b7a7588d8ad574a65a16a78900a97b0f826667edc080c15d67fad82bf1c77c7e79de2272b8d00e3606da1147d051c5a8de17ad6b45752072036b14cd6f024d82124236c4a4179dabc81845b4ff8fcc9c47519d6605&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ARNAz6WmwHsB7QdefgXGoNo%3D&pass_ticket=Rjfi06IWYAf7CLFoxl8NRzB9%2Fz24GRBXYt6%2FA1O%2BuAeEZFKuNuiEzk3kB9VfVCMa&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第16课
+
+### 古诗一首
+
+> <font color=lightgreen>**江南春**</font>    
+> <font color=lightblue>**唐	杜牧**</font>     
+>
+> 
+>
+> 千里莺啼绿映红，
+>
+> 水村山郭酒旗风。
+>
+> 南朝4四百八十寺，
+>
+> 多少楼台烟雨中。
