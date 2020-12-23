@@ -3154,6 +3154,302 @@
 >
 > 水村山郭酒旗风。
 >
-> 南朝4四百八十寺，
+> 南朝四百八十寺，
 >
 > 多少楼台烟雨中。
+
+
+
+## 2020年12月14日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早课堂上指导孩子们朗读课文已经进行到第12课了，今晚要进行复习巩固。朗读要求：1.读正确、流利。2.读熟练。3.读得有滋有味。另外，“读古诗  讲故事”的报名活动今天全部完成了，给孩子们积极参与活动点赞嘎！加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！每天进行一课朗读课文指导已经进行到第12课了，大声朗读课文是学习语文最重要的方法，你们要在家积极练习。另外，今天对你们上交整改的1号本作了登记，明早陈老师还会对不过关的私信通知，请认真按要求完成整改。加油！
+
+### 本日推文
+
+[今天是国家公祭日，请告诉孩子，这些人和事我们永远不能忘！ | 特别关注](https://mp.weixin.qq.com/s?__biz=MjM5OTU5MzcyMg==&mid=2653247253&idx=1&sn=835cdf6a16d90fd13be928f83f479f5a&chksm=bce8e4808b9f6d96ff88107d43cf8fd8384732353b8c81f5522c8d642b7e8aed751d6daaeea9&mpshare=1&scene=24&srcid=1213hGNFMfuGbwWmEyXzqkig&sharer_sharetime=1607840525746&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&ascene=1&devicetype=Windows+10+x64&version=6300002f&nettype=WIFI&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=AZ91F3rHRkq6T2Y6E7qVvnk%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0&key=6d84a474470f9f372bd3fd9d9451fb6e9f7895e576dfa877f89c078bdbefd4ee15ec71d83f68b06c83cb40588c4601a0517e8a47ac05c0498e7f9a3b95e9b0c8e517cb78854a9324838df261cd75121b7e7987c13b558fbe5ea3bad417a9630b92821fd3c6f339e8cc6fa0596deaf57e7379daaa687d57dd99a2d3eab6121d3c&uin=MzU0MzU2OTE1)
+
+[给孩子制定了奖励制度，为什么他还是没动力？#信箱回复#](https://mp.weixin.qq.com/s?__biz=MzUxNDcyNTY4Mg==&mid=2247495478&idx=1&sn=fa0d342f674c9effcddac8cca1d8cb04&chksm=f9432d6bce34a47de67a322656cf85a087dea4cb2e4bd5c40a1f71175a9db8e0bbb779241ee6&mpshare=1&scene=1&srcid=1212uqMLAk7SqqRJiulEKHDH&sharer_sharetime=1607937923743&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a2ba3996c145f5ed7bf7e14d4a77204cf30e4355222cf952959cbe06b50be0a62d47bd4a83bfdd42613c6f647a98de81715ae526e70f8dbad0d9a1f101f749e2f6ef4fa51f288addf1cd1fedf31989080b0824800c98fc3758ea3dbcd7a76d690cc2af2f0ebc2a1b3797a30454fccc5b6d4f7cabea8c0c9d0ce2de611c1d749b&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Ae%2F3zmChvKbc9kmiUplKuLQ%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第17课
+
+### 古诗一首
+
+> <font color=lightgreen>**蜂**</font>    
+> <font color=lightblue>**唐	罗隐**</font>     
+>
+> 
+>
+> 不论平地与山尖，
+>
+> 无限风光尽被占。
+>
+> 采得百花成蜜后，
+>
+> 为谁辛苦为谁甜？
+
+
+
+## 2020年12月15日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早学习重点是文言文的朗读停顿。我们不仅可以根据标点符号进行停顿，还要学习根据句意表示停顿。把文言文词汇转化为现代语言的同时就可以根据句子意思进行停顿。还有一个重点是学习简单复述故事。方法要求：1.把文言文词汇转化为现代语言。（翻译）2.按照一定顺序。3.讲得生动：想象着人物会说什么？会做什么？希望孩子们在课外阅读的时候复习巩固这样的方法。另外，请收到私信的孩子加强对1号本的整改。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早学习了文言文的朗读和复述故事的方法，请你们在课外阅读的时候自觉复习巩固。另外，1号本还没有整改，或整改还没有过关的请找陈老师面批。要保证作业的优秀率必须做到书写认真。写错了也没有关系，关键要改正过来。加强改错是永远的话题。孩子们，加油！
+
+### 本日推文
+
+[这些地方发生疫情概率大！又快放假过年，吴尊友有重要提醒](https://mp.weixin.qq.com/s?__biz=MjM5MjYwMjQwMA==&mid=2654374438&idx=1&sn=2a70635f858dae1cdee64af8ba506ee8&chksm=bd61ea698a16637fe73a6aaf3c77cacbd0d084d30c38f5cb3896a77b2bdc8f94ee58ae3c37f9&mpshare=1&scene=1&srcid=1215CJq0hjdYxefa8YKRTkGC&sharer_sharetime=1608027906232&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=56eb0c6e1119bb3de297abf2aa19c5e067e51e32d0c803cae4bdcb8ed78ad4daa757370ecf84a0e3a87885685d6c8b3297c84dcccd00090f3e686643419ee47f6763027f4e140802199cbe57c3a5cd629632508962c4dfe31ded9053fd885cd2314ee62e39c5a3f28f987cf55af7b7a6a1579405e2dba9739c4652613c86fbbc&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ASdlnqPQGd7XY9yf5efy6G4%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+[“十三五”，学校体育、美育这样“重”起来 | 特别关注](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651555321&idx=1&sn=dd091ac6f585659e9d096d03f36e2565&chksm=80347c38b743f52e11a384b428fc21dbcac0b55c61484258620ed9a3a86dc5a09b7895004658&mpshare=1&scene=1&srcid=1214BdwDZlaSLTVmj1LdQjFn&sharer_sharetime=1608027929606&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a2ba3996c145f5ed109b2e0aa1f849a49b6b84a6c85ea8bebfdefa7bb98d85ee2e59495b43128bd1ed869d1e5a189276cb2d6cb169eca1141804595d7d04c203e53449a1e21c9ae49c4c3f30c6685e4c3577b79fc7b4022ab2fee2d2cb887c4362c4379771d3b93d7342842e04ddd3b11368909feadb6f1d9d58a957724700c9&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AVcvvtGhVq4zSmAAhHLFH5I%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第18课
+
+### 古诗一首
+
+> <font color=lightgreen>**江上渔者**</font>    
+> <font color=lightblue>**宋	范仲淹**</font>     
+>
+> 
+>
+> 江上往来人，
+>
+> 但爱鲈鱼美。
+>
+> 君看一叶舟，
+>
+> 出没7风波里。
+
+
+
+## 2020年12月16日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早学习了书信文体的习作，学习重点是掌握书信的六个组成部分及各部分内容的格式要求。孩子们在自主、合作学习中掌握了方法要领，并进行了当堂习作。我粗略地看了孩子们的习作内容，真正地做到了“我手写我心”，陈老师感到很欣慰！为孩子们点赞啊！另外，请提醒孩子们对1号本再作自检自查，特别是对错误之处要认真落实改错。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！现代生活中的我们用书信进行交流的几乎太少了，但书信文体的习作是很重要的一项内容。今早你们在自主、合作的学习中掌握了书信习作的方法要领，并按照陈老师的要求当堂给陈老师写了一封信。陈老师读了每个同学写的信，感到很欣慰！谢谢孩子们！习作最重要的一点就是情真意切，你们做到了，为你们点赞啊！我们利用周五早上时间进行修改指导，相信你们的习作会更出彩！另外，提醒还没有完成作业整改的孩子积极主动些。加油！
+
+### 本日推文
+
+[教育专家陈默：中国孩子已经变了，老师和家长却还没跟上](https://mp.weixin.qq.com/s?__biz=MzI5MzU5NjcyMQ==&mid=2247530004&idx=2&sn=c244ada0fd4f32ddcec606dc0f98f89e&chksm=ec6d8d4adb1a045c51ef6269b650140b23de819a0be212fc2cb3e65f3735af52b56b84b488c3&mpshare=1&scene=1&srcid=1215ynO0GvJgaL8X74tkAO55&sharer_sharetime=1608109808182&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=2cb96cdbebfad14d8384e4e84c8b38094df6541d126267a981432cac97e76114637e258a1e816ceef1c14151f686d4bad604256f5ded23787143469d509ac51cd3147099316fdb682fd4b71d630a301f6e86ea0f9b0e22f461cf6a450dc1178d75fab968dfff17b2da9b65192ce1310852a5e00600c0e7b898eba0514da53af8&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=ASpTg48QSnYNZO0pk03A%2B0k%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+[云南新增2例境外输入病例，其中1例为中国籍近期居住于缅甸](https://mp.weixin.qq.com/s?__biz=MzA3NzA5NDMxNw==&mid=2652483986&idx=3&sn=465f18bb24b1084e34d5e46059ef54d1&chksm=84ba5d50b3cdd44622de7a87225e3393e5ed510dce2fa2a77152184c62c0656c306d9d3be156&mpshare=1&scene=1&srcid=1216YNalS9HCauM3yu0tEYx9&sharer_sharetime=1608109845308&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37339d17e3f861fb66b79d4afd2c1ed4c44edee222c1ae7dcf14b3b2d63c3f68cf566950aec9d63c0554f6ef760ef5325c4748901c53cfe0922cf8440752e7a3de07c2b2fa53a1917f18ef197aa9d9ca6b1f1be2e88883090380ea78d6530f635cf283cd2894f3832193dd73c2adf81b95e53b80ff28abd200&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AaWF0tea4kJWb%2F5Fb35siRM%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第19课
+
+### 古诗一首
+
+> <font color=lightgreen>**元日**</font>    
+> <font color=lightblue>**宋	王安石**</font>     
+>
+> 
+>
+> 爆竹声中一岁除，
+>
+> 春风送暖入屠苏。
+>
+> 千门万户曈曈日，
+>
+> 总把新桃换旧符。
+
+
+
+## 2020年12月17日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天课堂上带领孩子们复习了第16课的生字词，还指导孩子们朗读了课文，剩余时间就让孩子们自主安排时间。这期间我注意观察孩子们的表现：有同学积极帮助老师发作业，有同学在专心做作业，有同学在互相帮助完成听写，还有同学就不知道该做什么了……孩子们在学校的表现折射了在家里的情况，这里需要你们注意培养孩子们的是——我要做什么？而不是被爸爸妈妈安排做什么，这就是“自我管理”。当孩子们能够自主安排时间做有意义的事情的时候，你们应该给予孩子们及时的鼓励与表扬。如果您孩子不知道该做什么的时候，也请您不轻易为孩子安排。习惯培养就是从点点滴滴的小事做起。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！陈老师注意观察你们在学校的表现，或许你们觉得陈老师管得太多，盯得太紧，太烦人啦！有同学就是在和陈老师玩“猫捉老鼠的游戏”。他害怕陈老师找他要作业，盯他改错，害怕陈老师说：“这句话不文明。这件事能这样做吗？”甚至有同学在想：陈老师不是班主任，才不理她呢。无论是怎样的情况，陈老师都会把你们“管到底的”。孩子们，谢谢你们“我手写我心”。从那一封封书信内容里，陈老师感到了你们的真诚，同时也很感动！明早我们继续修改书信嘎！加油！
+
+### 本日推文
+
+[【聚焦】嫦娥五号到家了！习近平发来贺电](https://mp.weixin.qq.com/s?__biz=MzAwNTMwNzA0OA==&mid=2652167829&idx=1&sn=24f9bb26178dfe276578177b3bdbf26d&chksm=80fed152b78958445e36ddcbdb43aa980c88b1e008960e9a8f439b5c7e8255b3cdb2a46c029e&mpshare=1&scene=1&srcid=1217wIa3jm4vVbJRuUPVjfDm&sharer_sharetime=1608195862649&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=a2ba3996c145f5ed79c2e216cffe716fc91f2cdbfa8a95b66aa9a5846504015c951e732495ddb1ce146089867cd1f161962813a9b838f335709873b04484ce03289fa1731470a39efcff78db4152c2233cccddee2d307f278e606fb67358852d2b676295be2288e5db2c767f1094d03592aec0ac7fae342912f4173c823784e6&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXVIe%2Fgw%2BD%2FSL0CNlyy8X3E%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+[斯坦福教授：“表扬孩子”与“鼓励孩子”差距到底有多大？](https://mp.weixin.qq.com/s?__biz=MzI1MzAzNjUwNg==&mid=2247552208&idx=2&sn=6f89bb474aa2f4e4e216c4deaf5f820a&chksm=e9d8de65deaf5773caf9af7e0208dd2c6ad492c9621fc83397ac2e0fd1e1fd79184fb6bb10b4&mpshare=1&scene=1&srcid=1216EJCLqySk4FvbAojE2GDm&sharer_sharetime=1608195879749&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37df509754c04581d1717156d8b661dc35b6cf147bc22af198ecf9adec6c9183292fb2de933c3e5f8cb02cc2d3b7046293104bb0f33e0ba838d3cd562aa009f3ebfa61ebdff927bef27ce7adcd959a038149d8d888897ccdc2aef0719667b56d335ace1fd68fce3ef204033e13a8c5a8d4f7262162d6347504&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AdpOzJ5UCJwj%2By9jduOEa%2BE%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第20课
+
+### 古诗一首
+
+> <font color=lightgreen>**泊船瓜洲**</font>    
+> <font color=lightblue>**宋	王安石**</font>     
+>
+> 
+>
+> 京口瓜洲一水间，
+>
+> 钟山只隔数重山。
+>
+> 春风又绿江南岸，
+>
+> 明月何时照我还？ 
+
+
+
+## 2020年12月18日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早评讲了书信内容及格式，请协助孩子们完成此项实践活动。本次语文实践活动要求：1.掌握正确的书信格式要求。2.注意书信的开头和结尾。3.写好书信的“正文”部分：围绕一个意思写清楚，或围绕一件事写具体。4.表达真情实感。5.掌握书写信封的正确要求。6.邮寄给陈老师。（能让陈老师在元旦前收到就行）另外，请对孩子们的《预习案》作评价。（私信我即可）加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早我们在课堂上完成了书信习作的评讲，你们的表现很出色哦！给你们点赞啊！从同学们具有代表性的书信内容中我们要汲取优点，按照方法要求认真修改，再认真地誊写在信签纸上，最后到邮局邮寄给陈老师嘎！这可是今年元旦陈老师即将收到的最好的礼物哦！另外，请利用周末时间整理《预习案》，完成改错，记得下周一早上交。加油！
+
+### 本日推文
+
+[朗读的小技巧，很小很实用！](https://mp.weixin.qq.com/s?__biz=MzIzMjQzOTQ4MQ==&mid=2247507693&idx=1&sn=ccbc445b2045a0efde597ee4404076e2&chksm=e896753bdfe1fc2def8fe3bab4d86c40ece80a5d109fc1d7e79666613a136c49150f0f2ce74c&mpshare=1&scene=1&srcid=1218jZ92eCN74rXIu2QBPbSu&sharer_sharetime=1608282270395&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=54253d61e149ca80ff32e2225d33878192819a9d7f5f0a492dd1a859c316fedacef3acb53446a4f28bb90905e49ca1e333c65faf8a0bf7c1d02a0470015a5b0552eba8fa2389a627452ade757ee39591d4b92cd08ec304f9d14a3778eeb03b9ccd97ff3fd9ce30a3eccb77e909dbdd8a88f707056e594363bd00b51961114846&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AeObCq8O1xZW0a97I%2FxSYWs%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+[紧急提醒！已有学校全班停课！](https://mp.weixin.qq.com/s?__biz=MjM5MjYwMjQwMA==&mid=2654375640&idx=1&sn=b88632c5740d401e18bf814c695e491b&chksm=bd61ee978a166781653366f4159d44f0593c1f7b53ecbe0e3ecd762f4a2afbc3831025fecb5c&mpshare=1&scene=1&srcid=1218XeaPV5dGtSpKyH3Vqvod&sharer_sharetime=1608282336227&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=606f1fc5db59cbfc1a4d1e6aa5a7abf8ebff1929751cba204fc1021b27a2c9db2864a867723d2514adf26dd04377ce1829efb735ade80550f0a99b3dbb65b7a505dc05f2b262f709c303796638706ffe4ffe885b9d059beaf615c2c83a280bf3c3414a1df46f75b3b517ff779e88b5eb68460faea586a8e7c154f0c1cbb16b96&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=AXeFR0QTyvdb65SvqGNTed4%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第20课
+
+### 古诗一首
+
+> <font color=lightgreen>**书湖阴先生壁**</font>    
+> <font color=lightblue>**宋	王安石**</font>     
+>
+> 
+>
+> 茅檐长扫净无苔，
+>
+> 花木成畦手自栽。
+>
+> 一水护田将绿绕，
+>
+> 两山排闼送青来。
+
+
+
+## 2020年12月21日
+
+### 家长寄语
+
+亲爱的小朋友们：下午好！这个周末陈老师安排了自查、整理《预习案》的作业，并请爸爸妈妈协助完成“作业评价”，目前为止陈老师收到了很多同学的作业评价。从你们上交的评价内容中陈老师的脑海里浮现出一幕幕你们学习的情景。转眼我们即将迎来2021年，愿你们抓住2020年的尾巴正视自己，在期末复习阶段更认真更努力，相信一起都会如愿以偿啊！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！这个周末陈老师安排了你们自查、整理《预习案》的作业，并请爸爸妈妈协助完成“作业评价”。目前为止陈老师收到了很多同学的作业评价。从你们上交的评价内容中，陈老师的脑海里浮现出一幕幕你们学习的情景。转眼，我们即将迎来2021年，愿你们抓住2020年的尾巴，在期末复习阶段更认真更努力，相信一切都会如愿以偿啊！
+
+### 本日推文
+
+[李玫瑾：不放手孩子怎么成才？父母要做好“两不管”和“三不惯”](https://mp.weixin.qq.com/s?__biz=MzI1MzAzNjUwNg==&mid=2247552966&idx=2&sn=0de67e4bc80ff1f698355fe1e72cb8f3&chksm=e9d8dd73deaf5465a8503b33f5cae18ac4a0f5a7624e64947c78e9868480f5778dd6f17ff7dd&mpshare=1&scene=1&srcid=1220oRyBd41GhY2pVPkQcrSm&sharer_sharetime=1608598565456&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=6d84a474470f9f37312bd03d35b4843c9e7425c5372b2946ed274580610c8f6f2eb500e2daccfb6e018ca8318b9fbf0512c9e1a653c9d18c2590d56fc1130606e09eac4b99d373677c45f0d96f154c7dc1597af5d93f9308b695b23a1cdad3db3bcde96c0a3282b17b74d42723e0a65908bdd1d6614b9c3b2d0aa276b217510c&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Ac1vDeUw3MTEirdCLZZml4o%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+[冬至大如年，快来带孩子做这六件事！| 围观](https://mp.weixin.qq.com/s?__biz=MzAxOTE1NzE2Ng==&mid=2651555758&idx=2&sn=809932cdb975c7f28ce0994fd594e619&chksm=80347e6fb743f7792458c24771191f14aef5646ad022d72ebd99286f09fd931498c000bb8ec1&mpshare=1&scene=1&srcid=1222h3mMK4vUv0cRfNbThhQt&sharer_sharetime=1608598588332&sharer_shareid=bdb36103b3026f46954d60cbeaf956d0&key=606f1fc5db59cbfc0bfaddea3a23921feb7e4472e5c501d1c0a21af9760a5f631928a77ea0f31ed34d3db87571b285442b873fb3f19512e29851a79da9911069062efcf6393326f65785ebe571168889347b739e809f7098bb13c00dc20de2fd8ca25d364cee225a6de02baa5aa1aacfdf8f8f7f155db5f7929bba737e03c7a9&ascene=1&uin=MzU0MzU2OTE1&devicetype=Windows+10+x64&version=6300002f&lang=zh_CN&exportkey=Ab8AZMBiu45fj%2B9o2PgeQ5Q%3D&pass_ticket=g%2BD0ELAaGDyrv0UnAEU8oaXbJJOC7D55Hry6IbLuqvNJw8nmYORHwT4GQNpqY7yV&wx_header=0)
+
+### 每日一诵
+
+> 朗读课文第21课
+
+### 古诗一首
+
+> <font color=lightgreen>**六月二十七日望湖楼醉书**</font>    
+> <font color=lightblue>**宋	苏轼**</font>     
+>
+> 
+>
+> 黑云翻墨未遮山，
+>
+> 白雨跳珠乱入船。
+>
+> 卷地风来忽吹散，
+>
+> 望湖楼下水如天。
+
+
+
+## 2020年12月22日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今早又收到很多孩子整理的《预习案》，对这些孩子提出表扬。表扬这些孩子尝试着自我管理，真正地体验“是我上学，不是爸爸妈妈上学。”、“自己的事情自己能做好”。我们在对孩子们的“管”、“扶”、“放”过程中，要因人而异，把握尺度，不断尝试，不断总结，不断改进。另外，从今天起，听写作业一事，要引导孩子们按照陈老师的方法进行，从“听写作业”做起：自己的事自己能够做好。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！昨天今天没有上新课，和你们聊了一些话题：1.专心听课是在培养良好的思维习惯。2.学会用心去发现同学的优点，并向他们学习。3.选拔“听写小老师”。4.培养自己的“自我管理”习惯，从“听写作业”开始。孩子们，加油！
+
+### 本日推文
+
+[首飞成功！](https://mp.weixin.qq.com/s/uc78F6AMse6blOA--AxxDQ)
+
+[期末了，你和孩子都要注意心理健康](https://mp.weixin.qq.com/s/fELmnuMr-Zc2487KkMoRlQ)
+
+### 每日一诵
+
+> 朗读课文第22课
+
+### 古诗一首
+
+> <font color=lightgreen>**六月二十七日望湖楼醉书**</font>    
+> <font color=lightblue>**宋	苏轼**</font>     
+>
+> 
+>
+> 水光潋滟晴方好，
+>
+> 山色空濛雨亦奇。
+>
+> 欲把西湖比西子，
+>
+> 淡妆浓抹总相宜。
+
+
+
+## 2020年12月23日
+
+### 家长寄语
+
+亲爱的大朋友们：下午好！今天学习了26课《西门豹治邺》，本课有2个重点，也是难点。1.关注人物与事件，概括课文主要内容。需要孩子们说出课文围绕西门豹写了几件事。方法：抓住“六要素”说清楚事件内容。2.学会简要复述课文内容。方法：把主要内容复述得详细些，适当删减一些次要内容。今天作业中有相关练习，请按照要求完成。另外，作业中写“颁奖词”一题之前有过指导，放手让孩子们自己完成。加油！
+
+### 学生寄语
+
+亲爱的小朋友们：下午好！今早学习了《西门豹》一课，我们花了很长时间练习概括事件的主要内容。我们要按照方法自己练习，学会说“长话”，还要学习说“短话”。“长话短说”是这一课的练习重点。只要大胆去想，去说，反复练习，一定能够掌握这个知识点。另外，作业中的“颁奖词”一题，请按照陈老师指导的方法大胆去写就行。加油！
+
+### 本日推文
+
+[祝贺！“长征八号”带着“昆明一号”上天啦](https://mp.weixin.qq.com/s/XYIWALHWY7EiKlCNuBh3_A)
+
+[青春期的孩子“越管越反”，那是你方法没用对！后悔看晚了](https://mp.weixin.qq.com/s/b93jgIvKuDPyoVA0wcCTsQ)
+
+### 每日一诵
+
+> 朗读课文第23课
+
+### 古诗一首
+
+> <font color=lightgreen>**惠崇春江晚景**</font>    
+> <font color=lightblue>**宋	苏轼**</font>     
+>
+> 
+>
+> 竹外桃花三两枝，
+>
+> 春江水暖鸭先知。
+>
+> 蒌蒿满地芦芽短，
+>
+> 正是河豚欲上时。
